@@ -6,7 +6,6 @@ Collection of recipes because my brain can't hold all of them
 
 ## I want to make this
 
-- Bread
 - Kimchi
 - Bacon
 - Sandwiches
