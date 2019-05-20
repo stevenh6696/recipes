@@ -7,7 +7,7 @@ Collection of recipes because my brain can't hold all of them
 ## I want to make this
 
 - Kimchi
-- Bacon
+- [Bacon](pork/bacon.md)
 - Sandwiches
   - Smoked salmon
 - Cinnamon roll
