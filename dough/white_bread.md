@@ -1,4 +1,4 @@
-# Recipe name
+# White bread
 
 Simple white bread for sandwiches
 
