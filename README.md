@@ -10,7 +10,7 @@ Collection of recipes because my brain can't hold all of them
 - [Bacon](pork/bacon.md)
 - Sandwiches
   - Smoked salmon
-- Cinnamon roll
+- [Cinnamon roll](https://www.reddit.com/r/Old_Recipes/comments/c2qt5k/i_wanted_to_share_my_tennesseean_grandmothers/)
 - Croissant
 - Egg tart
 - Horchata
@@ -21,6 +21,14 @@ Collection of recipes because my brain can't hold all of them
 - Taiwan cabbage (DinTaiFung)
 - Pico de gallo
 - Corn tortilla
+- Pineapple bread
+- 蒸蛋
+- 拔絲地瓜
+- Gelato
+- Soy milk
+- Congee
+- [Chocolate chip cookies](https://www.youtube.com/watch?v=17lp_x27_RI)
+- Ube or sweet potato muffin
 
 ## I haven't typed the recipe up yet
 
@@ -33,3 +41,4 @@ Collection of recipes because my brain can't hold all of them
 - https://www.youtube.com/watch?v=Zl79DmpfbG0&t=292s
 - https://www.youtube.com/watch?v=VHR0qjr79fQ
 - https://www.youtube.com/watch?v=g2-FFux9EbU
+- https://www.facebook.com/ytower01/videos/1346456802168805/
