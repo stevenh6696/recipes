@@ -10,7 +10,6 @@ Collection of recipes because my brain can't hold all of them
 - [Bacon](pork/bacon.md)
 - Sandwiches
   - Smoked salmon
-- [Cinnamon roll](https://www.reddit.com/r/Old_Recipes/comments/c2qt5k/i_wanted_to_share_my_tennesseean_grandmothers/)
 - Croissant
 - Egg tart
 - Horchata
@@ -29,10 +28,10 @@ Collection of recipes because my brain can't hold all of them
 - Ube or sweet potato muffin
 - [Peanut butter cookies](https://youreverydayheirlooms.wordpress.com/2019/05/02/4-ingredient-peanut-butter-cookies-gluten-free/)
 - [Lemon bars](https://www.reddit.com/r/Old_Recipes/comments/c1x1k1/grandmas_lemon_bars_aka_the_hit_at_every_family/)
+- 金沙豆腐
 
 ## I haven't typed the recipe up yet
 
-- https://www.youtube.com/watch?v=iG9Rqpw49Hk
 - https://www.youtube.com/watch?v=kiDEmxFYkwc
 - https://www.youtube.com/watch?v=KCmRhdtWQG4
 - https://www.youtube.com/watch?v=wmbpOb9neLY
