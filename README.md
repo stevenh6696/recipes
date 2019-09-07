@@ -16,7 +16,6 @@ Collection of recipes because my brain can't hold all of them
 - 牛肉麵
 - 蔥油餅
 - Red bean paste
-- Pico de gallo
 - Corn tortilla
 - Pineapple bread
 - 蒸蛋
@@ -28,7 +27,7 @@ Collection of recipes because my brain can't hold all of them
 - Ube or sweet potato muffin
 - [Peanut butter cookies](https://youreverydayheirlooms.wordpress.com/2019/05/02/4-ingredient-peanut-butter-cookies-gluten-free/)
 - [Lemon bars](https://www.reddit.com/r/Old_Recipes/comments/c1x1k1/grandmas_lemon_bars_aka_the_hit_at_every_family/)
-- 金沙豆腐
+- [金沙豆腐](https://www.youtube.com/watch?v=t7_5uXFZizE)
 - [Watermelon sorbet](https://www.asweetpeachef.com/watermelon-sorbet/)
 - [Oven fried chicken](https://www.reddit.com/r/Old_Recipes/comments/c82j9g/ovenfried_chicken_from_an_old_amish_cookbook_so/)
 - [Peanut butter cookie](https://old.reddit.com/r/Old_Recipes/comments/c75n18/i_made_utheknittedgnomes_4_ingredient_peanut/)
