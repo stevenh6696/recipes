@@ -38,3 +38,5 @@ Cooking time: none
 8. Done when 35% of the weight is gone
 
 ## Extra notes
+
+- Never lost enough wait and did not turn out well

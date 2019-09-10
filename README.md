@@ -26,16 +26,16 @@ Collection of recipes because my brain can't hold all of them
 - [Chocolate chip cookies](https://www.youtube.com/watch?v=17lp_x27_RI)
 - Ube or sweet potato muffin
 - [Peanut butter cookies](https://youreverydayheirlooms.wordpress.com/2019/05/02/4-ingredient-peanut-butter-cookies-gluten-free/)
-- [Lemon bars](https://www.reddit.com/r/Old_Recipes/comments/c1x1k1/grandmas_lemon_bars_aka_the_hit_at_every_family/)
 - [金沙豆腐](https://www.youtube.com/watch?v=t7_5uXFZizE)
 - [Watermelon sorbet](https://www.asweetpeachef.com/watermelon-sorbet/)
-- [Oven fried chicken](https://www.reddit.com/r/Old_Recipes/comments/c82j9g/ovenfried_chicken_from_an_old_amish_cookbook_so/)
 - [Peanut butter cookie](https://old.reddit.com/r/Old_Recipes/comments/c75n18/i_made_utheknittedgnomes_4_ingredient_peanut/)
 - [Coffee cake](https://old.reddit.com/r/Old_Recipes/comments/cugvwq/my_grandmothers_coffee_cake_recipe_a_staple_on/)
 - [Oatmeal cookies](https://www.reddit.com/r/Old_Recipes/comments/cdzmtv/the_oatmeal_cookies_my_grandmother_always_made/)
 - [Scotch cookies](https://www.reddit.com/r/Old_Recipes/comments/cj44x1/was_looking_into_a_murder_that_took_place_in_my/)
 - [Chocolate chip cookies](https://old.reddit.com/r/Old_Recipes/comments/cgsh8v/tested_usewamyruths_grandmas_chocolate_chip/)
 - [Easy noodles](https://www.youtube.com/watch?v=ssiuQH-0wCM)
+- [Banana pudding](https://www.pauladeen.com/recipe/not-yo-mamas-banana-pudding/) or [this](https://old.reddit.com/r/Old_Recipes/comments/cfc930/moms_awardwinning_bread_pudding_bon_ton/)
+- [Apple crisp](https://www.reddit.com/r/Old_Recipes/comments/cz6dxh/apple_crisp_my_familys_favorite_dessert_growing/)
 
 ## I haven't typed the recipe up yet
 
