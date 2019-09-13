@@ -32,9 +32,9 @@ Cooking time: 1 hour
    1. Marinate chicken thighs in salt and cooking wine for at least 1 hour
    2. Boil enough water to cover chicken thighs
    3. Add ginger, scallions, crushed garlic cloves, and chicken thighs to water
-   4. Cover and let sit for 15 minutes after water boils again
+   4. Cover and let sit with heat off for 15 minutes after water boils again
    5. Turn on heat and boil water again
-   6. Cover and let sit for 5 minutes after water boils again
+   6. Cover and let sit with heat off for 5 minutes after water boils again
    7. Cool the chicken in fridge
 2. Cook rice
    1. Wash rice and cut garlic and ginger
