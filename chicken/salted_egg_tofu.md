@@ -29,14 +29,16 @@ Cooking time: 20 minutes maybe
 1. Cube tofu
 2. Cut egg in half, remove yolk, separate yolk into small pieces, and separate egg white into small pieces
 3. Cut red pepper, garlic, scallion, cilantro
-3. Use more oil than usual + small fire to get crust on tofu
-4. Flip as needed to get crust on all sides
-5. Add egg yolk and a bit more oil
-6. Stir around lightly to get egg yolk to stick to tofu but don't ruin shape of tofu
-7. After kinda bubbly add half of egg whites, red pepper, garlic, scallion, and cilantro
-8. Add some salt, sugar, and sesame oil
-9. Cook for a bit more I think
+4. Use more oil than usual + small fire to get crust on tofu
+5. Flip as needed to get crust on all sides
+6. Add egg yolk and a bit more oil
+7. Stir around lightly to get egg yolk to stick to tofu but don't ruin shape of tofu
+8. After kinda bubbly add half of egg whites, red pepper, garlic, scallion, and cilantro
+9. Add some salt, sugar, and sesame oil
+10. Cook for a bit more I think
 
 ## Extra notes
 
 - Getting the right tofu seems important
+- Hard to get crust on tofu right
+- Takes quite some time actually

@@ -17,6 +17,7 @@ Cooking time: at least 2 hours
 - Pig bone
 - Lotus root
 - Peanuts
+- Corn
 
 ## Directions
 
@@ -27,7 +28,9 @@ Cooking time: at least 2 hours
 5. Bring to boil
 6. Simmer for 2 hours with lid on
 7. Add salt to taste
+8. Cook corn for 5-10 minutes if you want
 
 ## Extra notes
 
 - Used pig leg bone but neck might be good too
+- Can add water and reboil for next day
