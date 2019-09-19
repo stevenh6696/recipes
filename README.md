@@ -9,7 +9,7 @@ Collection of recipes because my brain can't hold all of them
 - Kimchi
 - [Bacon](pork/bacon.md)
 - Croissant
-- Egg tart
+- [Egg tart](https://www.facebook.com/watch/?v=758018611298081)
 - Horchata
 - 牛肉麵
 - 蔥油餅
@@ -33,18 +33,22 @@ Collection of recipes because my brain can't hold all of them
 - [Apple crisp](https://www.reddit.com/r/Old_Recipes/comments/cz6dxh/apple_crisp_my_familys_favorite_dessert_growing/)
 - [Spaghetti sauce](https://old.reddit.com/r/EatCheapAndHealthy/comments/cauan2/wow_so_i_finally_decided_to_make_my_own_tomato/) and [meatballs](https://old.reddit.com/r/Old_Recipes/comments/csjgzk/greatgreat_grandmothers_chicago_italian_meatballs/)
 - [Oatmeal crisp](https://old.reddit.com/r/Old_Recipes/comments/cdzmtv/the_oatmeal_cookies_my_grandmother_always_made/)
+- 滷肉飯
+  - [YTower 1](https://www.facebook.com/watch/?v=2695703003775471)
+  - [YTower 2](https://www.facebook.com/watch/?v=2298872370163549)
+  - [YTower 3](https://www.facebook.com/watch/?v=2652924384720000)
+- 牛肉麵
+  - [YTower 1](https://www.facebook.com/watch/?v=2421816518099518)
+- [Cucumber appetizer](https://www.facebook.com/watch/?v=2566725220044928)
+- [醉雞](https://www.facebook.com/watch/?v=2630328250351291)
+- [粉圓](https://www.facebook.com/watch/?v=2422199111395794)
+- [Brownie](https://www.reddit.com/r/Old_Recipes/comments/cusmzf/from_my_97yrold_grandmothers_recipe_box_i_find_it/)
+- [Cinnamon sugar pecans](https://old.reddit.com/r/Old_Recipes/comments/crwc5h/my_aunt_sues_cinnamon_sugar_pecans_we_make_them/)
 
 ## I haven't typed the recipe up yet
 
-- https://www.youtube.com/watch?v=kiDEmxFYkwc
-- https://www.youtube.com/watch?v=KCmRhdtWQG4
-- https://www.youtube.com/watch?v=wmbpOb9neLY
-- https://www.youtube.com/watch?v=1BNWzU9s_Ro
-- https://www.youtube.com/watch?v=Zl79DmpfbG0&t=292s
-- https://www.facebook.com/ytower01/videos/1346456802168805/
-- http://cshtheresa.pixnet.net/blog/post/42634145-%E3%80%90%E6%9C%89%E9%9B%BB%E9%8D%8B%E5%A5%BD%E7%B0%A1%E5%96%AE%E3%80%91%E9%8A%80%E8%80%B3%E8%96%8F%E4%BB%81%E6%B9%AF
-- http://sandy9221.pixnet.net/blog/post/174102003-%E8%B6%85%E4%B8%8B%E9%A3%AF%E9%AE%AE%E9%AD%9A%E6%96%99%E7%90%86~%E8%B1%86%E9%BC%93%E8%92%B8%E7%9F%B3%E6%96%91
-- https://www.youtube.com/watch?v=Z6oyAnGHPWE
-- https://www.youtube.com/watch?v=HW42yfHcCNg
-- https://www.youtube.com/watch?v=-9Ssa6aQnq0
-- https://www.youtube.com/watch?v=N8WHDQ8Y2qY
+- [Brothers green eats 4 Sandwiches, 4 Ingredients, 4 Dollars](https://www.youtube.com/watch?v=kiDEmxFYkwc)
+- [日式炸豬排](https://www.youtube.com/watch?v=1BNWzU9s_Ro)
+- [蠔油芥藍](https://www.youtube.com/watch?v=Zl79DmpfbG0&t=292s)
+- [銀耳薏仁湯](http://cshtheresa.pixnet.net/blog/post/42634145-%E3%80%90%E6%9C%89%E9%9B%BB%E9%8D%8B%E5%A5%BD%E7%B0%A1%E5%96%AE%E3%80%91%E9%8A%80%E8%80%B3%E8%96%8F%E4%BB%81%E6%B9%AF)
+- [豆鼓蒸石斑](http://sandy9221.pixnet.net/blog/post/174102003-%E8%B6%85%E4%B8%8B%E9%A3%AF%E9%AE%AE%E9%AD%9A%E6%96%99%E7%90%86~%E8%B1%86%E9%BC%93%E8%92%B8%E7%9F%B3%E6%96%91)
