@@ -38,3 +38,4 @@ Cooking time: 15 minutes
 ## Extra notes
 
 - Can add some 海鮮醬 or 蠔油 on step 4 for thickening and sweetening sauce
+- Use 辣豆瓣 instead of chili flakes since I have that already

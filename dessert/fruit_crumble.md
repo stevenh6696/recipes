@@ -18,7 +18,7 @@ Cooking time: 45 minutes
 
 Other stuff to make
 
-- [ Chef John Youtube peach cobbler](https://www.youtube.com/watch?v=xmi5j4t3phA)
+- [Chef John Youtube peach cobbler](https://www.youtube.com/watch?v=xmi5j4t3phA)
 - [Bon Appetit Youtube fancy cherry cobbler](https://www.youtube.com/watch?v=0cWAPfKyrSA)
 - [Paula Deen peach cobbler](https://www.youtube.com/watch?v=Xdk_cfHA4o4)
 - Clafoutis
@@ -30,21 +30,28 @@ Other stuff to make
 - 3/4 cup white sugar
 - 1/4 cup brown sugar
 - 1/3 cup butter
-- 3 cups berries
-- 1 teaspoon lemon zest
-- 2 teaspoons lemon juice
-- 1/3 cup white sugar
-- 1-4 teaspoons cornstarch
-- Cayenne
+- Berry filling
+  - 3 cups berries
+  - 1 teaspoon lemon zest
+  - 2 teaspoons lemon juice
+  - 1/3 cup white sugar
+  - 1-4 teaspoons cornstarch
+  - Cayenne
+- Apple filling
+  - 4 cups sliced apples
+  - 1 teaspoon cinnamon
+  - 1 teaspoon salt
+  - 1/4 cup water
+  - Lemon juice
 
 ## Directions
 
 1. Mix flour, white sugar, brown sugar, and butter
-2. Mix berries, lemon zest, lemon juice, sugar, corn starch, and cayenne
+2. Mix everything for fruit filling
     - Corn starch is for thickening
     - Do right before baking since the sugar will draw water out
 3. Put half of crumble mixture on bottom of dish and pat down
-4. Pour in berry mixture
+4. Pour in fruit filling
 5. Put other half of crumble on top in crumble form
 6. Put dish on top of pan with parchment paper since it might overflow
 7. Bake at 375 F for 45 minutes
@@ -55,6 +62,5 @@ Other stuff to make
 ## Extra notes
 
 - Using reddit for easy crumble, Chef John for filling
-- Skipped lemon zest and cayenne, used all purpose flour instead of corn starch
+- Skipped lemon zest and cayenne, used all purpose flour instead of corn starch for berry filling
 - Used double for crumble since put some on bottom
-- Try other fillings next time

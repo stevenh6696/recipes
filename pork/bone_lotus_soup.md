@@ -10,7 +10,9 @@ Cooking time: at least 2 hours
 
 ## References
 
-- Ida's parents
+Ida's parents
+
+[YTower](https://www.facebook.com/watch/?v=2674264402624342)
 
 ## Ingredients
 
@@ -34,3 +36,4 @@ Cooking time: at least 2 hours
 
 - Used pig leg bone but neck might be good too
 - Can add water and reboil for next day
+- YTower suggests apple, 玉竹, 芡實

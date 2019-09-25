@@ -10,7 +10,9 @@ Cooking time: 30 minutes
 
 ## References
 
-[Reddit](https://www.reddit.com/r/Old_Recipes/comments/c2qt5k/i_wanted_to_share_my_tennesseean_grandmothers/)
+[Old_recipes subeddit](https://www.reddit.com/r/Old_Recipes/comments/c2qt5k/i_wanted_to_share_my_tennesseean_grandmothers/)
+
+[Alternate version](https://imgur.com/a/r3ZeJtq#mH2zxfE)
 
 ## Ingredients
 

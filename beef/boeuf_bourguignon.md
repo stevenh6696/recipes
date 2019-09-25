@@ -12,6 +12,10 @@ Cooking time: 2 hours
 
 [Rosalina's kitchen youtube](https://www.youtube.com/watch?v=AlkEtLqbj0E)
 
+[YTower version 1](https://www.facebook.com/watch/?v=2493921860691477)
+
+[YTower version 2](https://www.facebook.com/watch/?v=2625370774180372)
+
 ## Ingredients
 
 - 600 grams beef fingers (beef rib without bone, costco has)
@@ -65,3 +69,5 @@ Cooking time: 2 hours
 - Too many steps
 - Not red enough?
 - Used sliced ribs with bone in instead, beef fingers probably better
+- Maybe try YTower one it looks easier
+- Remember to have wine bottle opener and can opener

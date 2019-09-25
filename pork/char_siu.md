@@ -14,6 +14,8 @@ Cooking time: 1 hour
 
 [Chinese cooking demystified Reddit](https://www.reddit.com/r/Cooking/comments/6ctoj9/recipe_how_to_make_authentic_cantonese_char_siu/)
 
+[Marion's Kitchen](http://www.marionskitchen.com/homemade-chinese-bbq-charsiu-pork/)
+
 ## Ingredients
 
 - Pork (Boston butt/梅肉, belly/楠肉, neck/頸肉)
@@ -37,3 +39,4 @@ Cooking time: 1 hour
 
 - Pork neck was kind of dry, might have been too thin
 - The instructions have instructions for making own char siu sauce and using charcoal grill
+- Marion's recipe maybe easier way to make own sauce
