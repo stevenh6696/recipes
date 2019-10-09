@@ -44,3 +44,4 @@ Cooking time: < 15 minutes
 - Using salted butter instead of butter and salt
 - Other recipe uses vegetable oil instead of butter
 - Can add violet food coloring to make brighter color
+- Don't leave out for too long or will not have crinkles

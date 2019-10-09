@@ -1,12 +1,12 @@
 # Egg tart
 
-Hopefully this works
+Hopefully this works (it didn't)
 
 Serves: just me
 
-Preparation time: 
+Preparation time: 20 minutes
 
-Cooking time:
+Cooking time: 40 minutes
 
 ## References
 
@@ -34,4 +34,7 @@ Cooking time:
 
 ## Extra notes
 
-- Use oven instead of air fryer
+- Using oven instead of air fryer takes a lot longer
+- Bought wrong kind of puff pastry
+- Pastry puffed and filling overflowed
+- Need to change some stuff next time

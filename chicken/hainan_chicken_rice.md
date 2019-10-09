@@ -14,6 +14,8 @@ Cooking time: 1 hour
 
 [iCook](https://icook.tw/recipes/138421)
 
+[Subtle asian eats (Try)](https://www.facebook.com/groups/1250642975060385/permalink/1715295875261757/)
+
 ## Ingredients
 
 - 8 chicken thighs
