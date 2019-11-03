@@ -2,6 +2,8 @@
 
 Mm nice
 
+Also called niku jyaga
+
 Serves:
 
 Preparation time: 15 minutes
@@ -14,7 +16,13 @@ Forgot
 
 Me
 
-## Ingredients
+[Rosalina's kitchen youtube](https://www.youtube.com/watch?v=g3AQGjtIMTA)
+
+[MASA's cooking youtube](https://www.youtube.com/watch?v=09hfKAHs2Qw)
+
+## 大同電鍋 version
+
+### Ingredients
 
 - Pork jowl or other pork
 - Potatoes
@@ -25,7 +33,7 @@ Me
 - Rice wine
 - Butter
 
-## Directions
+### Directions
 
 1. Cup onion and potatoes, chop carrots
 2. Cut pork if needed
@@ -37,7 +45,48 @@ Me
 8. Cook for 1 rice cup water outside
 9. Done when potatoes are soft
 
-## Extra notes
+### Extra notes
 
 - Can mash some of the potatoes to be more thick
 - Maybe try thicker pork next time
+
+## Rosalina's kitchen + MASA's cooking
+
+### Ingredients
+
+- Pork/beef slices
+- Potatoes
+- Carrot
+- Onion
+- Konnyaku noodles
+- Snow peas or green beans
+- Scallions
+- Garlic
+- Sugar
+- Sake
+- Dashi stock, bonito broth, or water
+- Mirin
+- Soy sauce
+
+### Directions
+
+1. Cut potatoes, carrot, onion, noodles, snow peas or green beans, scallions, and garlic
+2. Marinate beef slices in sugar and sake
+3. Cook onions, garlic, and meat in some oil
+4. Add carrots and potatoes and mix
+5. Add sake, mirin, sugar, and soy sauce
+6. Cover with dashi stock
+7. Add konnyaku
+8. Bring to boil and remove scum
+9. Cover and simmer for 20-25 minutes until potatoes are soft
+10. Add snow peas or green beans
+11. Top with scallions
+
+### Extra notes
+
+- Used shabushabu pork slices
+- Used dashi stock powder
+- Used cooking wine instead of sake
+- Skipped konnyaku noodles, garlic, and sugar
+- Skipped marinating meat
+- Small red/white potatoes are a lot creamier
