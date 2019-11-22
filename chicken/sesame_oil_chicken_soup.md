@@ -12,9 +12,10 @@ Cooking time: 30 minutes
 - 4-6 tbsp sesame oil
 - 6-8 inches ginger
 - 1/2 bottle rice wine
-- water
+- Water
 
 ## Directions
+
 1. Chop drumsticks in half, cross-wise if possible
 2. Slice ginger into rounds, skin on
 3. Pre-heat pot with 2 tbsp of sesame oil and stir fry ginger on low heat until fragrant

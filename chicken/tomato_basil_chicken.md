@@ -22,9 +22,11 @@ Cooking time: 1.5 hours
 3. Half cherry tomatoes and add to skillet
 4. Season tomatoes and chicken with salt and pepper to taste; rub into skin
 5. Rip basil and place into skillet
-	+ _Optional:_ save some basil for garnish
+   - _Optional:_ save some basil for garnish
 6. Drizzle everything with olive oil
 7. Place in oven, uncovered for 90 minutes
 
 ## Extra notes
-+ Can use big boy tomatoes, but just not as pretty
+
+- Can use big boy tomatoes, but just not as pretty
+- Tomatoes taste good

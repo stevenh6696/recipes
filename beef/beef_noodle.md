@@ -22,6 +22,7 @@ Cooking time: 6 hours
   - [KT Hu Pixnet](https://kthu1031.pixnet.net/blog/post/38641098)
   - [Linda Pixnet](https://lindawu122470.pixnet.net/blog/post/198068031-%E7%B4%85%E7%87%92%E7%89%9B%E8%82%89%E9%BA%B5%28%E7%89%9B%E8%82%89%E7%9C%8B%E8%B5%B7%E4%BE%86%E5%A0%85%E6%8C%BA%EF%BC%8C%E5%90%83%E8%B5%B7%E4%BE%86%E6%9F%94%E5%AB%A9%E6%9C%89)
   - [Dream Chef Home](http://dreamchefhome.com/%E7%B4%85%E7%87%92%E7%89%9B%E8%82%89%E9%BA%B5/)
+  - [Woks of Life](https://thewoksoflife.com/taiwanese-beef-noodle-soup-instant-pot/)
 
 ## Ingredients
 
