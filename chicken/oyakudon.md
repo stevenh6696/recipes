@@ -47,3 +47,4 @@ Cooking time: 15 minutes
 - Cook rice with slightly less water than usual to absorb broth
 - Skipped egg yolk and parsley
 - Egg will instantly overcook if no one is watching it
+- tastes fine if you forget about the stock
