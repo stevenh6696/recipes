@@ -14,6 +14,10 @@ Cooking time: 30 minutes ish
 
 [Hot thai kitchen youtube](https://youtu.be/q_9rDq2gGmg)
 
+[Rosalina's kitchen youtube](https://www.youtube.com/watch?v=c8GexIeacf0), seems easier
+
+[Chef John youtube](https://www.youtube.com/watch?v=SoFSmNaKTVU&)
+
 ## Ingredients
 
 - Chili paste

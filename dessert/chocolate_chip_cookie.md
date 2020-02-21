@@ -14,6 +14,10 @@ Cooking time:
 
 [Bon Appetit youtube](https://www.youtube.com/watch?v=17lp_x27_RI)
 
+[Joshua Weissman cookie hack](https://www.youtube.com/watch?v=wyuec0PPz68)
+
+[Subtle asian cooking](https://www.facebook.com/groups/subtleasiancooking/permalink/3143204789028304/)
+
 Other recipes
 
 - [Old recipes subreddit](https://old.reddit.com/r/Old_Recipes/comments/cgsh8v/tested_usewamyruths_grandmas_chocolate_chip/)

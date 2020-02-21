@@ -16,6 +16,8 @@ Ida
 
 [YTower Taiwan style](https://www.facebook.com/ytower01/videos/2551421054908678/)
 
+[Adam Liaw fancy Japanese style](https://www.youtube.com/watch?v=aASr5x0d3Ys)
+
 ## Ida style
 
 ### Ingredients

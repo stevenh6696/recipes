@@ -20,6 +20,8 @@ Me
 
 [MASA's cooking youtube](https://www.youtube.com/watch?v=09hfKAHs2Qw)
 
+[MASA's cooking youtube - beef + tofu version](https://www.youtube.com/watch?v=SN8zdStcV3g)
+
 ## 大同電鍋 version
 
 ### Ingredients

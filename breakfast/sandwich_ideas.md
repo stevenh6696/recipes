@@ -26,3 +26,13 @@ Bread - Avocado - Garlic goat cheese - Egg - Bread
 ## [Prosciutto egg](https://www.youtube.com/watch?v=xMqV6a3POcw)
 
 Bread - Lettuce - Prosciutto - Sunny side egg - Prosciutto - Lettuce - Bread
+
+## [Egg pork floss](https://www.facebook.com/groups/subtleasiancooking/permalink/3029522557063195/)
+
+Bread - Mayonnaise - Flat egg - Pork floss - Shredded lettuce/cabbage - Mayonnaise - Bread
+
+## [Chocolate butter](https://www.facebook.com/groups/SeattleFoodie/permalink/10163235001150495/)
+
+Baguette - Chocolate slab - Butter slab - Baguette
+
+## Katsuo sando??

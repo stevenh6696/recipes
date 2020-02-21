@@ -12,6 +12,10 @@ Cooking time:
 
 [Other reference](https://www.reddit.com/r/Cooking/comments/8oq3xo/recipe_scallion_pancakes_shanghai_street/)
 
+[Maybe this](https://www.facebook.com/groups/subtleasiancooking/permalink/3326226684059446/)
+
+[YTower](https://www.facebook.com/ytower01/videos/2604763509574432/)
+
 ## Ingredients
 
 - 2 cups all purpose flour

@@ -10,6 +10,12 @@ Cooking time: 15 minutes
 
 [Cooking with Dog youtube](https://www.youtube.com/watch?v=SAluC5k0Ip8)
 
+[Try Serious Eats](https://www.seriouseats.com/recipes/2016/08/oyakodon-japanese-chicken-and-egg-rice-bowl-recipe.html)
+
+[Cooking with Chef Dai](https://www.youtube.com/watch?v=iBSKWTtzumg)
+
+[Adam Liaw](https://www.youtube.com/watch?v=ScS3GUc38gU)
+
 ## Ingredients
 
 - 50 grams chicken thigh
@@ -48,3 +54,4 @@ Cooking time: 15 minutes
 - Skipped egg yolk and parsley
 - Egg will instantly overcook if no one is watching it
 - tastes fine if you forget about the stock
+- Can pan fry skin of chicken thigh first too

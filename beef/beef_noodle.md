@@ -14,6 +14,8 @@ Cooking time: 6 hours
 
 [Ichigoholly](https://ichigoholly.pixnet.net/blog/post/352976636-%7B%E9%A3%9F%E8%AD%9C%7D-2011%E5%B9%B4%E5%8F%B0%E7%81%A3%E7%89%9B%E8%82%89%E9%BA%B5%E7%AF%80%E5%86%A0%E8%BB%8D%E9%A3%9F%E8%AD%9C%E7%A5%95%E6%96%B9--%E5%82%B3%E8%AA%AA)
 
+[詹姆士 Easy version](https://www.youtube.com/watch?v=iCdVcESF_8w)
+
 - Other
   - [Tasty](https://www.youtube.com/watch?v=NM4ArR-qbHQ)
   - [詹姆士的廚房](https://www.youtube.com/watch?v=7sBuDEy9ZAA)

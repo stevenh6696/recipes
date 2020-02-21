@@ -12,6 +12,8 @@ Cooking time: 30 minutes
 
 Memory
 
+[Can try from Woks of Life](https://thewoksoflife.com/ma-po-tofu-real-deal/)
+
 ## Ingredients
 
 - 1/2 - 1 pack ground prok

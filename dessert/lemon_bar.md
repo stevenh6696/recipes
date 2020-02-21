@@ -12,6 +12,8 @@ Cooking time: 1 hour
 
 [Reddit](https://www.reddit.com/r/Old_Recipes/comments/c1x1k1/grandmas_lemon_bars_aka_the_hit_at_every_family/)
 
+[Maybe try blood orange](https://old.reddit.com/r/Old_Recipes/comments/f1j0h4/id_been_dying_to_make_ujusthoods_lemon_bars_came/)
+
 ## Ingredients
 
 - 2 cups flour
