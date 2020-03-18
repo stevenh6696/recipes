@@ -25,6 +25,16 @@ Cooking time: 1 hour
 - 4 tablespoons flour
 - 1/2 teaspoon salt
 
+## Halved Ingredients
+- 1 cup flour
+- 1/2 cup butter
+- 1/4 cup powdered sugar
+- 2 eggs
+- 3 tablespoons lemon juice
+- 1 cup sugar
+- 2 tablespoons flour
+- 1/4 teaspoon salt
+
 ## Directions
 
 1. Cream flour, butter, and powdered sugar together
