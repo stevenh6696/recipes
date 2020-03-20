@@ -49,3 +49,4 @@ Cooking time: 1 hour
 
 - Don't let the filling go down the sides or it will stick like crazy
 - Probably use way less sugar next time
+- used a mixture of brown sugar and powdered sugar for the filling; makes it a lot more bread-like (would not recommend)
