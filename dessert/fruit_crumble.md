@@ -63,4 +63,4 @@ Other stuff to make
 
 - Using reddit for easy crumble, Chef John for filling
 - Skipped lemon zest and cayenne, used all purpose flour instead of corn starch for berry filling
-- Used double for crumble since put some on bottom
+- ~~Used double for crumble since put some on bottom~~ Correct measurements above for crumble top and bottom
