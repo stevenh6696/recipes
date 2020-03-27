@@ -13,16 +13,15 @@ Will make one sometime
 - [沙茶牛](https://www.facebook.com/ytower01/videos/226427508384152/)
 - [胡椒餅](https://www.facebook.com/ytower01/videos/398391094186204/)
 - [Galbi jjim](https://www.facebook.com/groups/subtleasiancooking/permalink/3143608582321258/) and [this](https://www.youtube.com/watch?v=kS87lQYJJeA)
-- [肉乾](https://www.youtube.com/watch?v=_yReBfDw2vU)
+- [Beef and garlic chips on rice](https://www.youtube.com/watch?v=LaaKS1zKpRU)
 
 ### Breakfast
 
 - [Egg and cheese toast](https://www.instagram.com/p/B3lnh3YnO9J/)
-- Cinnamon roll pancakes
 - Vietnamese coffee
-- [麵茶](https://www.facebook.com/watch/?v=2814864905230957)
 - [Butter](https://www.youtube.com/watch?v=GBecgW3WSfc)
 - Congee
+- [Breakfast taco](https://www.youtube.com/watch?v=j0gjlSgO7VU)
 
 ### Chicken
 
@@ -38,11 +37,9 @@ Will make one sometime
 - [Spinach and gouda chicken](https://www.youtube.com/watch?v=q8cUgKK3wZk)
 - [Miyazaki nanban chicken (soy sauce + tartar)](https://www.youtube.com/watch?v=p7BaHCJ6xiI)
 - [鹽水雞](https://www.facebook.com/ytower01/videos/226427508384152/)
-- [口水雞](https://www.instagram.com/p/B2yHmyCHEp9/)
 - [Teriyaki chicken](https://www.youtube.com/watch?v=XVu57qOcpLY)
 - [Caramelized ginger chicken thighs](https://www.threehungrybellies.com/post/caramelized-ginger-chicken-thighs)
 - [Chicken katsu](https://www.youtube.com/watch?v=D6diqH8RF4U)
-- [Hot fried wings](https://www.youtube.com/watch?v=Y0vcsMn_7LI)
 - [Tea egg](https://old.reddit.com/r/tea/comments/dqfno7/one_of_the_tea_eggs_i_made_for_breakfast_today_%E8%8C%B6%E5%8F%B6%E8%9B%8B/)
 
 ### Dessert
@@ -74,7 +71,6 @@ Will make one sometime
 - [Vanilla ice cream](https://www.youtube.com/watch?v=IQ-t8eSSD3Y), need electric whisk
 - [銅鑼燒](https://www.justonecookbook.com/dorayaki-japanese-red-bean-pancake/)
 - [Russian honey cake](https://old.reddit.com/r/Baking/comments/dxlj4c/its_my_first_time_making_russian_honey_cake_one/)
-- [Easy lobster tails](https://www.youtube.com/watch?v=L6dZ5oWYgiY)
 - [Thumbprint cookies](https://www.youtube.com/watch?v=YXxJisASPIY)
 - Ube or sweet potato muffin
 - [粉圓](https://www.facebook.com/watch/?v=2422199111395794)
@@ -95,6 +91,7 @@ Will make one sometime
 ### Fish
 
 - [Spanish octopus](https://www.youtube.com/watch?v=onCfFc8FNr8) or [normal octopus](https://www.facebook.com/groups/1250642975060385/permalink/1747396455385032/)
+- [Easy lobster tails](https://www.youtube.com/watch?v=L6dZ5oWYgiY)
 
 ### Noodles
 
