@@ -12,7 +12,7 @@ Cooking time:
 
 [Bon Appetit](https://www.bonappetit.com/recipe/bas-best-chocolate-chip-cookies)
 
-[Bon Appetit youtube](https://www.youtube.com/watch?v=17lp_x27_RI)
+[Bon Appetit youtube](https://www.youtube.com/watch?v=17lp_x27_RI) and [another one from them](https://www.youtube.com/watch?v=dMPTxTmZDzE)
 
 [Joshua Weissman cookie hack](https://www.youtube.com/watch?v=wyuec0PPz68)
 
