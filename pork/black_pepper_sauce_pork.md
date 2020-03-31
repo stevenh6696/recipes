@@ -12,7 +12,7 @@ Cooking time: 20 minutes
 
 [美食鳳味](https://www.youtube.com/watch?v=WBg3_xjZDPE)
 
-[新美食鳳味](https://www.youtube.com/watch?v=mD0rxUvVd1s) (Have not tried yet)
+[新美食鳳味](https://www.youtube.com/watch?v=mD0rxUvVd1s) (Don't really use this one)
 
 ## Ingredients
 
@@ -29,6 +29,7 @@ Cooking time: 20 minutes
   - 1.5 tablespoons soy sauce
   - Salt
   - 1 tablesppon vinegar
+  - Cooking wine
 
 ## Directions
 
@@ -52,3 +53,4 @@ Cooking time: 20 minutes
 
 - Used water and a little chicken stock cube instead of chicken stock
 - Oops forgot vinegar, butter, and flour
+- Don't add too much butter and flour
