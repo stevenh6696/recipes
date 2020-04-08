@@ -12,6 +12,8 @@ Cooking time: 1 hour
 
 [Reddit](https://old.reddit.com/r/Old_Recipes/comments/c82j9g/ovenfried_chicken_from_an_old_amish_cookbook_so/)
 
+[The Spruce Eats](https://www.thespruceeats.com/southern-oven-fried-chicken-3058647) (Try, higher temp)
+
 ## Ingredients
 
 - 1/3 cup vegetable oil

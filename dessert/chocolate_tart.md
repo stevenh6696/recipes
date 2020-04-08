@@ -12,6 +12,8 @@ Cooking time: 1 hour
 
 [Home Cooking Adventure youtube](https://www.youtube.com/watch?v=IgqFF_bgvn0)
 
+[Goal: Chocolate Cacao version](https://www.youtube.com/watch?v=7TcCIcE1hr8)
+
 ## Ingredients
 
 - Pate sablee

@@ -10,10 +10,10 @@ Will make one sometime
 
 ### Beef
 
-- [沙茶牛](https://www.facebook.com/ytower01/videos/226427508384152/)
 - [胡椒餅](https://www.facebook.com/ytower01/videos/398391094186204/)
 - [Galbi jjim](https://www.facebook.com/groups/subtleasiancooking/permalink/3143608582321258/) and [this](https://www.youtube.com/watch?v=kS87lQYJJeA)
 - [Beef and garlic chips on rice](https://www.youtube.com/watch?v=LaaKS1zKpRU)
+- [Beef and cabbage soup](https://www.budgetbytes.com/beef-and-cabbage-soup/)
 
 ### Breakfast
 
@@ -52,7 +52,6 @@ Will make one sometime
 - [Salted caramel chocolate chip cookies](https://www.threehungrybellies.com/post/salted-caramel-chocolate-chip-cookies)
 - [Japanese shortcake](https://old.reddit.com/r/Baking/comments/d8vxvr/first_attempt_at_japanese_strawberry_shortcake/)
 - Lemon blueberry mascarpone cake
-- [Mochi](https://www.youtube.com/watch?v=8xK7s75suNI) or [this](https://icook.tw/recipes/155766) or [this](https://www.youtube.com/watch?v=XCoIyyj3ZTQ) or [this](https://www.facebook.com/ytower01/videos/474843740034351/)
 - [Chocolate toffee oatmeal cookies](https://old.reddit.com/r/Old_Recipes/comments/dkn4b6/i_made_the_chocolate_coffee_toffee_oatmeal/)
 - [More chocolate chip cookie recipes](https://hot-thai-kitchen.com/chocolate-chip-cookies/)
 - [Swedish chocolate balls](https://www.youtube.com/watch?v=4LRb7sQ1uwE)
@@ -75,6 +74,9 @@ Will make one sometime
 - Ube or sweet potato muffin
 - [粉圓](https://www.facebook.com/watch/?v=2422199111395794)
 - [Almond cream](https://www.threehungrybellies.com/post/almond-cream)
+- [Pound cake](https://www.youtube.com/watch?v=GfXNAEXejK0)
+- [Tearamisu](https://junandtonic.com/blog/2019/8/20/tearamisu)
+- [Hawaiian butter mochi](https://www.contemplatingsweets.com/hawaiian-butter-mochi/)
 
 ### Dough
 
@@ -87,6 +89,8 @@ Will make one sometime
 - [Easy korean pancake gamja jeon](https://www.youtube.com/watch?v=uptai3b8ORo) or [this](https://www.facebook.com/groups/subtleasiancooking/permalink/3296617503687031/)
 - [Milk buns](https://www.threehungrybellies.com/post/super-soft-milk-buns) and [this](https://mildlymeandering.com/hokkaido-milk-bread-shokupan/) and [another one](https://mildlymeandering.com/hokkaido-milk-bread-shokupan/) and [yet another one](https://www.youtube.com/watch?v=tc3coiL36Cg) and [this one too](https://www.youtube.com/watch?v=M9le93pztbU)
 - [Dumpling and skin](https://www.youtube.com/watch?v=E8QkYjga-lY) and [this](https://www.facebook.com/groups/subtleasiancooking/permalink/3033963046619146/)
+- [Everything bagel](https://www.threehungrybellies.com/post/chewy-everything-bagels)
+- [Peanut butter bread](https://old.reddit.com/r/Old_Recipes/comments/ftmduf/if_anyone_is_still_in_doubt_about_the_peanut/) and [this](https://old.reddit.com/r/Old_Recipes/comments/fu7rx2/ran_out_of_bread_under_lock_down_so_we_made_the/)
 
 ### Fish
 
@@ -99,10 +103,11 @@ Will make one sometime
 - [Carbonara](https://www.youtube.com/watch?v=os6k27gjbq4)
 - [Pasta](https://www.youtube.com/watch?v=6vebbDZxoKE)
 - [Easy noodles](https://www.youtube.com/watch?v=ssiuQH-0wCM)
+- [Spicy beef noodles](https://www.threehungrybellies.com/post/spicy-beef-noodles)
+- [Miso mushroom pasta](https://junandtonic.com/blog/miso-mushroom-pasta)
 
 ### Pork
 
-- [Japanese Savoury Mille-Feuille with Ponzu](https://www.youtube.com/watch?v=PPQOTKxj63Y) and [this](https://www.youtube.com/watch?v=wkASf7UOXRA)
 - [紅油抄手](https://www.facebook.com/groups/subtleasiancooking/permalink/3044960568852727/)
 
 ### Vegetables
@@ -113,11 +118,13 @@ Will make one sometime
 - [French onion soup](https://www.youtube.com/watch?v=LIy6Bhg7nH8)
 - 羅宋湯
 - Tofu with yangnyumjang
-- [Kimchi jigae](https://www.facebook.com/groups/subtleasiancooking/permalink/3067487039933413/)
+- [Kimchi jigae](https://www.facebook.com/groups/subtleasiancooking/permalink/3067487039933413/) and [video version](https://www.youtube.com/watch?v=8dgVO7ikq5Y)
 - [Tomato basil soup](https://tasty.co/recipe/tomato-basil-soup)
 - [Korean tofu soup](https://www.youtube.com/watch?v=Hpg4EWyolLY) and [easy version](https://www.youtube.com/watch?v=54tpycbDX_Q)
 - [蠔油芥藍](https://www.youtube.com/watch?v=Zl79DmpfbG0&t=292s)
 - Kimbap
+- [Roasted smashed potatoes](https://www.youtube.com/watch?v=KP9Xg92ckI4)
+- [Potatoes Romanoff](https://www.youtube.com/watch?v=3FpcOohn4bI)
 
 ### Other
 

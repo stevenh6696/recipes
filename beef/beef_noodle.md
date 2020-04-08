@@ -16,6 +16,8 @@ Cooking time: 6 hours
 
 [詹姆士 Easy version](https://www.youtube.com/watch?v=iCdVcESF_8w)
 
+[Ho Foods](https://www.youtube.com/watch?v=IK1m8rnjk2w)
+
 - Other
   - [Tasty](https://www.youtube.com/watch?v=NM4ArR-qbHQ)
   - [詹姆士的廚房](https://www.youtube.com/watch?v=7sBuDEy9ZAA)

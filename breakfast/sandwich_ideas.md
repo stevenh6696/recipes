@@ -35,4 +35,12 @@ Bread - Mayonnaise - Flat egg - Pork floss - Shredded lettuce/cabbage - Mayonnai
 
 Baguette - Chocolate slab - Butter slab - Baguette
 
+## [Bon Appetit](https://www.youtube.com/watch?v=lF2sKFnuALw)
+
+Baguette - Cultured butter - Ham - Sauerkraut? - Cultured butter - Baguette (Jambon beurre)
+
+Large flat bread - Genoa salami - mortadella - Olive salad (pickled spicy peppers, olives, shallots, garlic) - Provolone - Mozzarella - Prosciutto - Gabagool - Large flat bread (Muffuletta)
+
+Focaccia - Breaded chicken cutlet _ Fresh mozzarella - Italian roasted peppers - Sauce (chopped castelvetrano olives, calabrian chilies, mayonnaise, pesto) - Raw onion - Focaccia
+
 ## Katsuo sando??
