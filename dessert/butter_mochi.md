@@ -1,8 +1,5 @@
 # Butter Mochi
 
-Short notes
-Was devoured mostly by my mom.
-
 Serves:
 1 person (if its my mom)
 
