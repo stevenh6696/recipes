@@ -41,5 +41,7 @@ maybe check out this one (uses brown butter)
 - used brown sugar instead of white sugar (strongly advised)
 - used half and half instead of evaporated milk, because I didn't want to buy evaporated milk
 - used a pinch of baking soda + lemon juice to replace the baking powder
+- buttered the baking dish very well
+- the edge pieces taste very nice fresh out of the oven
 - didn't use enough sticky rice flour bc I fucked up the conversion from oz to cups, so it was a little too mushy
 - maybe use some regular flour next time too, to make it a little more bread-like and filling
