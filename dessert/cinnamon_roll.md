@@ -16,7 +16,7 @@ Cooking time: 30 minutes
 
 [Joshua Weissman sticky buns](https://www.youtube.com/watch?v=mRr-aD8VsUE)
 
-[With tangzhong?](https://old.reddit.com/r/Breadit/comments/eskzqv/first_attempt_at_cinnamon_rolls/)
+[With tangzhong?](https://old.reddit.com/r/Breadit/comments/eskzqv/first_attempt_at_cinnamon_rolls/ffb7vp6/)
 
 [Fancy version](https://www.youtube.com/watch?v=RYM9r8AHTmI)
 

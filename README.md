@@ -41,6 +41,7 @@ Will make one sometime
 - [Caramelized ginger chicken thighs](https://www.threehungrybellies.com/post/caramelized-ginger-chicken-thighs)
 - [Chicken katsu](https://www.youtube.com/watch?v=D6diqH8RF4U)
 - [Tea egg](https://old.reddit.com/r/tea/comments/dqfno7/one_of_the_tea_eggs_i_made_for_breakfast_today_%E8%8C%B6%E5%8F%B6%E8%9B%8B/)
+- [宮保雞丁](https://www.youtube.com/watch?v=0KkkPZIDvj8)
 
 ### Dessert
 
@@ -109,10 +110,10 @@ Will make one sometime
 ### Pork
 
 - [紅油抄手](https://www.facebook.com/groups/subtleasiancooking/permalink/3044960568852727/)
+- [紅燒肉](https://www.youtube.com/watch?v=WRhFjZfo4k4)
 
 ### Vegetables
 
-- [Kimchi](https://www.youtube.com/watch?v=eTucCw1w6Ak) and [Taiwan style](https://www.facebook.com/ytower01/videos/2650002528383863/) and [this](https://www.youtube.com/watch?v=ZghX4Mrg7kw)
 - 拔絲地瓜
 - [炸茄盒](https://www.youtube.com/watch?v=-s25tlVmYtk)
 - [French onion soup](https://www.youtube.com/watch?v=LIy6Bhg7nH8)
@@ -125,6 +126,7 @@ Will make one sometime
 - Kimbap
 - [Roasted smashed potatoes](https://www.youtube.com/watch?v=KP9Xg92ckI4)
 - [Potatoes Romanoff](https://www.youtube.com/watch?v=3FpcOohn4bI)
+- Black garlic
 
 ### Other
 
