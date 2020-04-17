@@ -1,16 +1,11 @@
 # Cinnamon roll
 
-Easy cinnamon roll recipe from /r/Old_Recipes
+Version | Link
+--- | ---
+[1](#version-1) | [Old_recipes subreddit](https://www.reddit.com/r/Old_Recipes/comments/c2qt5k/i_wanted_to_share_my_tennesseean_grandmothers/)
+[2](#version-2) | ["no-knead" overnight](https://www.youtube.com/watch?v=oTdU13pryV0)
 
-Serves: 10 big rolls
-
-Preparation time: 2.5 hours
-
-Cooking time: 30 minutes
-
-## References
-
-[Old_recipes subeddit](https://www.reddit.com/r/Old_Recipes/comments/c2qt5k/i_wanted_to_share_my_tennesseean_grandmothers/)
+## Other references
 
 [Alternate version](https://imgur.com/a/r3ZeJtq#mH2zxfE)
 
@@ -19,6 +14,20 @@ Cooking time: 30 minutes
 [With tangzhong?](https://old.reddit.com/r/Breadit/comments/eskzqv/first_attempt_at_cinnamon_rolls/ffb7vp6/)
 
 [Fancy version](https://www.youtube.com/watch?v=RYM9r8AHTmI)
+
+[Old_recipes subeddit](https://www.reddit.com/r/Old_Recipes/comments/c2qt5k/i_wanted_to_share_my_tennesseean_grandmothers/)
+
+
+# Version 1
+
+Easy cinnamon roll recipe from /r/Old_Recipes
+
+Serves: 10 big rolls
+
+Preparation time: 2.5 hours
+
+Cooking time: 30 minutes
+
 
 ## Ingredients
 
@@ -57,3 +66,64 @@ Cooking time: 30 minutes
 - Used butter instead of shortening and it turned out fine
 - Don't let rise for too long oops
 - Maybe mix butter and sugar/cinnamon mixture first
+
+# Version 2
+
+I wanted a version that's not as dry
+
+Serves: 12 rolls
+
+Preparation time: overnight
+
+Cooking time: 40 minutes
+
+
+## Ingredients
+
+### Dough
+- 3.5 cups all-purpose flour
+- 1/2 tablespoon salt
+- 3/4 tablespoon dried yeast
+- 1 cup milk
+- 1/2 cup water
+- 2 large eggs
+- 1/4 cup honey
+- 1/4 cup melted butter
+
+### Filling
+- 1/2 cup butter
+- 1 1/4 cup light brown sugar
+- 2 1/2 tablespoons ground cinnamon
+- 1 cup toasted pecans
+
+### Cream Cheese Glaze
+- 4 oz cream cheese, room temperature
+- 1 cup powdered sugar
+- 1/4 cup butter, room temperature
+- 1/2 teaspoon vanilla extra
+
+## Directions
+1. To make the dough, combine all of the dry ingredients in a very large bowl.
+2. In a separate jug add in the milk, water, honey and butter.  Heat it in the microwave until it is warm (at blood temperature) and the butter has melted. Whisk in the eggs quickly.
+3. Stir the wet into the dry to make a sticky dough. You can simply mix with a spoon until there are no flour lumps yet. Scrape down the dough from the sides of the bowl.
+4. Cover the bowl, and let the dough rise for 2 hours at cool room temperature. It will triple in size.
+5. After this, REFRIGERATE THE  DOUGH FOR  AT LEAST  8 HOURS, preferrably over night.  It can be refrigerated for up to 3 days before using.
+6. When you're ready to make your cinnamon rolls, make the filling. Combine the  butter, brown sugar and cinnamon in a bowl. Stir until smooth. Set aside.
+ 7. Transfer the dough to a floured work surface, and roll it into a rectangle approximately 1/4" thick. It will be long so you can always do it in 2 goes.
+8. Spread the filling over the dough, leaving a narrow margin around the edges uncovered.
+9. Starting with a long edge, gently roll the dough into a log. Don't roll it too tightly; if you do, the centers of the buns will pop up as they bake.
+10. Slice the rolls  2” thick and set them with their cinnamon face up
+11. In a deep baking pan lined with parchment space the buns in the pan. 
+(AT THIS POINT YOU CAN REFRIGERATE TO BAKE OFF THE FOLLOWING DAY IF YOU WISH)
+12. Cover the pan, and allow the rolls to rise until they're have grown into each other and are puffed up, about 30 minutes to an hour. (depending on how hot your kitchen is)
+(Towards the end of the rising time, preheat the oven to 375oF/ 190oC)
+13. Uncover the pan, and bake the buns for 40 to 45 minutes, till they're a deep golden brown. Rotate the tray during baking so they can get golden brown all over.
+14. While they are baking make your glaze: In a large bowl (or you can use a hand mixer) beat the cream cheese, butter, sugar and vanilla together with a whisk until well combined.
+15. Remove the pan from the oven and let it rest for 20 minutes. Once cooled remove from the pan and onto a cooling rack .
+16. Spread your cream cheese glaze generously over the cinnamon rolls, and devour immediately.
+
+## Extra notes
+- Very very sticky dough
+- took more than two hours to rise (maybe 3?)
+- definitely not as dry as the old recipes version
+- try the cream cheese glaze next time, regular icing tastes like shit
