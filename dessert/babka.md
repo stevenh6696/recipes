@@ -4,7 +4,7 @@ Serves:
 ???
 
 Preparation time:
-awhile
+a whole day
 
 Cooking time:
 30 minutes
@@ -28,15 +28,18 @@ Cooking time:
 - 4 1/4 tablespoon room temperature butter (cubed)
 
 ### Filling
+(just eyeball it)
 - 225 grams Nutella
 - 11/6 grams chocolate chips
 
 ### Sugar Syrup
-- 3/8 cup white sugar
-- 1/4 cup water
+- 1/4 cup white sugar
+- 1/6 cup water
 
 ## Directions
 
-1. watch the video
+1. watch the video (or open the link in the description)
 
 ## Extra notes
+- turned out a lot better than expected
+- ROLL THE DOUGH VERY THINLY (the braid looks bad if you dont get many layers)
