@@ -57,14 +57,11 @@ Will make one sometime
 - [More chocolate chip cookie recipes](https://hot-thai-kitchen.com/chocolate-chip-cookies/)
 - [Swedish chocolate balls](https://www.youtube.com/watch?v=4LRb7sQ1uwE)
 - [Babka](https://www.vice.com/en_us/article/bjw37d/perfect-chocolate-babka-recipe)
-- [Millionaire shortbread](https://www.americastestkitchen.com/recipes/9253-millionaires-shortbread)
 - [Matcha checkerboard cookies](https://www.facebook.com/groups/subtleasiancooking/permalink/3071890699493047/)
-- [Cinnamon swirl danish](https://tasty.co/recipe/cinnamon-swirl-danish)
 - [Swiss roll cake](https://www.youtube.com/watch?v=c-hNWudWc2s)
 - [Japanese style pudding](https://www.youtube.com/watch?v=PlA09FSd22E)
 - [Easy chocolate cake](https://www.youtube.com/watch?v=5Ts9aGTzAV8)
 - [地瓜圓](https://www.instagram.com/p/B1oQKNjHFc_/)
-- [French toast and condensed milk bread](https://www.instagram.com/p/B2lPtC5HU49/)
 - [Lemon brownie](https://old.reddit.com/r/Baking/comments/dqbvns/for_lack_of_a_better_name_lemon_brownies/) from [here](https://divascancook.com/chewy-glazed-lemon-brownies-recipe/)
 - [Rice ice cream](https://www.facebook.com/ytower01/videos/2512093409076563/)
 - [Fast whipped cream](https://www.youtube.com/watch?v=VWgBPMZ0V5s)
@@ -77,7 +74,6 @@ Will make one sometime
 - [Almond cream](https://www.threehungrybellies.com/post/almond-cream)
 - [Pound cake](https://www.youtube.com/watch?v=GfXNAEXejK0)
 - [Tearamisu](https://junandtonic.com/blog/2019/8/20/tearamisu)
-- [Hawaiian butter mochi](https://www.contemplatingsweets.com/hawaiian-butter-mochi/)
 
 ### Dough
 
@@ -88,7 +84,6 @@ Will make one sometime
 - [叉燒包](https://recipe.mei.kitchen/char-siu-pao-%E5%8F%89%E7%83%A7%E5%8C%85/) and [this](https://www.facebook.com/groups/subtleasiancooking/permalink/3163529960329120/)
 - [湯圓](https://tasty.co/recipe/sweet-sesame-dumplings-tangyuan) or [this](https://www.youtube.com/watch?v=NtpZa1Rdbn4)
 - [Easy korean pancake gamja jeon](https://www.youtube.com/watch?v=uptai3b8ORo) or [this](https://www.facebook.com/groups/subtleasiancooking/permalink/3296617503687031/)
-- [Milk buns](https://www.threehungrybellies.com/post/super-soft-milk-buns) and [this](https://mildlymeandering.com/hokkaido-milk-bread-shokupan/) and [another one](https://mildlymeandering.com/hokkaido-milk-bread-shokupan/) and [yet another one](https://www.youtube.com/watch?v=tc3coiL36Cg) and [this one too](https://www.youtube.com/watch?v=M9le93pztbU)
 - [Dumpling and skin](https://www.youtube.com/watch?v=E8QkYjga-lY) and [this](https://www.facebook.com/groups/subtleasiancooking/permalink/3033963046619146/)
 - [Everything bagel](https://www.threehungrybellies.com/post/chewy-everything-bagels)
 - [Peanut butter bread](https://old.reddit.com/r/Old_Recipes/comments/ftmduf/if_anyone_is_still_in_doubt_about_the_peanut/) and [this](https://old.reddit.com/r/Old_Recipes/comments/fu7rx2/ran_out_of_bread_under_lock_down_so_we_made_the/)
@@ -101,7 +96,6 @@ Will make one sometime
 ### Noodles
 
 - [Spaghetti sauce](https://old.reddit.com/r/EatCheapAndHealthy/comments/cauan2/wow_so_i_finally_decided_to_make_my_own_tomato/) and [meatballs](https://old.reddit.com/r/Old_Recipes/comments/csjgzk/greatgreat_grandmothers_chicago_italian_meatballs/)
-- [Carbonara](https://www.youtube.com/watch?v=os6k27gjbq4)
 - [Pasta](https://www.youtube.com/watch?v=6vebbDZxoKE)
 - [Easy noodles](https://www.youtube.com/watch?v=ssiuQH-0wCM)
 - [Spicy beef noodles](https://www.threehungrybellies.com/post/spicy-beef-noodles)

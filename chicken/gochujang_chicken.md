@@ -51,3 +51,4 @@ Cooking time:
 
 - Used two chicken leg quarters instead
 - Used stainless steel skillet instead
+- Kinda just tastes like roast chicken
