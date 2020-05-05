@@ -69,7 +69,8 @@ Cooking time: 30 minutes
 
 # Version 2
 
-I wanted a version that's not as dry
+I wanted a version that's not as dry. 
+This turned out not good. It turns dry and heavy as shit almost immediately.
 
 Serves: 12 rolls
 
