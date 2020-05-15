@@ -11,7 +11,8 @@ Cooking time:
 ## References
 
 [tart shell (Dominique Ansel)](https://www.youtube.com/watch?v=KHG86xIB6FM)
-[custard (HidaMari)](https://www.youtube.com/watch?v=pKmkLCIIBmM)
+
+the custard comes from hours of watching of HidaMari's YouTube channel.
 
 ## Ingredients
 
@@ -25,11 +26,10 @@ Cooking time:
 - 1 large egg
 
 ### Custard Pudding
-- 5 sheets of gelatin
-- 3 egg yolks
+- 3 eggs (2 eggs, 1 yolk?)
 - 45 g sugar
-- 250 g milk
-- 100 g heavy cream
+- 200?? g milk
+- 140?? g heavy cream
 - 20 g condensed milk
 - red tea (original uses vanilla bean)
 
@@ -39,13 +39,9 @@ Cooking time:
 - 10 g water (2/3 tbsp)
 - 20 g hot water
 
-Alternatively (from Carla's Creme Caramel)
-- 2/3 cup sugar
-- 1/4 cup water
-
 ## Directions
 
-1. First step
+fuckkkkk
 
 ## Extra notes
 
