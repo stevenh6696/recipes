@@ -1,12 +1,12 @@
 # Custard Tart
 
-Short notes
+will i ever make this thing???
 
-Serves:
+Serves: ??
 
-Preparation time:
+Preparation time: ??
 
-Cooking time:
+Cooking time: 1 hour and 15 minutes
 
 ## References
 
@@ -65,4 +65,3 @@ the custard comes from hours of watching of HidaMari's YouTube channel.
 
 - don't make the tart shell in 80 degree weather
 - don't bake the tart shell without pie weights. you're not Dominique Ansel, and you will never be.
-- will i ever make this thing???

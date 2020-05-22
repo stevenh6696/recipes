@@ -1,12 +1,12 @@
 # Key Lime Pie
 
-Short notes
+billy parisi cannot be trusted
 
-Serves:
+Serves: just me for a week?
 
-Preparation time:
+Preparation time: idk but pretty quick
 
-Cooking time:
+Cooking time: 10 minutes
 
 ## References
 
@@ -39,4 +39,3 @@ reference video uses graham cracker i think. i used my fucked up custard tart sh
 - MAKE SURE TO HAVE THE MERINGUE READY WHEN THE THING COMES OUT OF THE OVEN
 - or just bake it with the filling simultaneously???
 - used only 1/4 cup lime juice (1 lime); wayyy to sweet
-- billy parisi cannot be trusted

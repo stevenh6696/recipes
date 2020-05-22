@@ -1,12 +1,12 @@
 # Creme Brulee
 
-Short notes
+almost too decadent
 
-Serves:
+Serves: like 4 ramekins
 
-Preparation time:
+Preparation time: 20-30 minutes
 
-Cooking time:
+Cooking time: 45-60 minutes
 
 ## References
 
