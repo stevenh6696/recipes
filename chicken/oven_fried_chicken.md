@@ -40,3 +40,6 @@ Cooking time: 1 hour
 - Used less chicken and did not adjust oil/butter
 - Try less oil/butter in the pan next time so the breading isn't wet the whole time
 - 2 day old flour seems like it's too wet
+- Try using corn starch or sweet potato flour in it?
+- Tried using corn starch too but only dipped on oil once, dip in oil after flouring next time
+  - No oil left in pan

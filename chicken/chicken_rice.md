@@ -12,6 +12,8 @@ Cooking time: 30 minutes
 
 [瑋恆師 Youtube](https://www.youtube.com/watch?v=VtdtxoYf4wU)
 
+[YTower](https://www.facebook.com/ytower01/videos/673338946481891/) (fancier)
+
 ## Ingredients
 
 - Chicken

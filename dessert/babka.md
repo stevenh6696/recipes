@@ -11,7 +11,7 @@ Cooking time:
 
 ## References
 
-[Bread's Bakery](https://www.youtube.com/watch?v=HmqHq2Nn7Hs)
+[Bread's Bakery](https://www.youtube.com/watch?v=HmqHq2Nn7Hs) + [recipe](https://www.vice.com/en_us/article/bjw37d/perfect-chocolate-babka-recipe)
 
 ## Ingredients
 

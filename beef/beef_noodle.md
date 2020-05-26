@@ -55,6 +55,9 @@ Cooking time: 6 hours
   - 1/2 cup 辣豆腐乳
   - 1/2 cup 醬油膏
   - 1/4 cup tomato paste
+- Other ingredients
+  - Red carrots
+  - Daikon radish
 
 ## Directions
 
@@ -71,17 +74,18 @@ Cooking time: 6 hours
 1. Put shank into cold water and heat up on large flame for 15-20 minutes or until the surface browns
 2. Cut into pieces after
 3. Cut scallions into long pieces, slice ginger into pieces, flatten garlic cloves, cut 紅蔥頭 in half
-4. On high heat put in scallions, ginger, garlic, 紅蔥頭, and chili peppers and wait until it smells good
-5. Add in sauces part A and heat for 1-2 minutes
-6. Add in meat chunks and stir for 10 minutes
-7. Add sauces part B and mix
-8. Add water until meat is covered and add 滷包
-9. Cook on small/medium flame for 2 hours
-10. Turn heat to high and add red carrots and white carrots
-11. Return to small flame after 10 minutes
-12. Cook on small/medium flame for 30 minutes
-13. Leave covered for 3 hours or overnight
-14. Add meat to noodles and broth
+4. Toast sichuan peppercorns
+5. On high heat put in scallions, ginger, garlic, 紅蔥頭, chili peppers, and sichuan peppercorns and wait until it smells good
+6. Add in sauces part A and heat for 1-2 minutes
+7. Add in meat chunks and stir for 10 minutes
+8. Add sauces part B and mix
+9. Add water until meat is covered and add 滷包
+10. Cook on small/medium flame for 2 hours
+11. Turn heat to high and add red carrots and white carrots
+12. Return to small flame after 10 minutes
+13. Cook on small/medium flame for 30 minutes
+14. Leave covered for 3 hours or overnight
+15. Add meat to noodles and broth
 
 ## Extra notes
 

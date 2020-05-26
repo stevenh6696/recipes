@@ -32,6 +32,6 @@ Cooking time: quite a few hours
    - Or in rice cooker covered
    - Some recipes only did 4 hours and then 10 hours room temp
    - Longer is tangier
-6. Refridgerate
+6. Refrigerate
 
 ## Extra notes

@@ -14,6 +14,8 @@ Cooking time: < 15 minutes
 
 [Kawaling Pinoy](https://www.kawalingpinoy.com/ube-crinkles/)
 
+[Gorgeous treats](https://www.instagram.com/p/B_bSlhcBF5F/)
+
 ## Ingredients
 
 - 3 cups all purpose flour
@@ -45,3 +47,4 @@ Cooking time: < 15 minutes
 - Other recipe uses vegetable oil instead of butter
 - Can add violet food coloring to make brighter color
 - Don't leave out for too long or will not have crinkles
+- Make correctly sized balls for once maybe

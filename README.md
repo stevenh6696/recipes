@@ -12,7 +12,6 @@ Will make one sometime
 
 - [胡椒餅](https://www.facebook.com/ytower01/videos/398391094186204/)
 - [Galbi jjim](https://www.facebook.com/groups/subtleasiancooking/permalink/3143608582321258/) and [this](https://www.youtube.com/watch?v=kS87lQYJJeA)
-- [Beef and garlic chips on rice](https://www.youtube.com/watch?v=LaaKS1zKpRU)
 - [Beef and cabbage soup](https://www.budgetbytes.com/beef-and-cabbage-soup/)
 
 ### Breakfast
@@ -22,6 +21,8 @@ Will make one sometime
 - [Butter](https://www.youtube.com/watch?v=GBecgW3WSfc)
 - Congee
 - [Breakfast taco](https://www.youtube.com/watch?v=j0gjlSgO7VU)
+- [Belgian liege waffles](https://old.reddit.com/r/Breadit/comments/fuutwn/first_attempt_at_liege_waffles/)
+- [擂茶](https://www.facebook.com/groups/subtleasiancooking/permalink/3371106316238149/)
 
 ### Chicken
 
@@ -29,12 +30,9 @@ Will make one sometime
 - [紹興酒蒸雞](https://www.youtube.com/watch?v=DI_83dSDmsI)
 - [Chicken soup](https://www.facebook.com/watch/?v=2674267765957339)
 - [醉雞](https://www.facebook.com/watch/?v=2630328250351291)
-- [雞肉飯](https://www.youtube.com/watch?v=VtdtxoYf4wU) and [this](https://www.facebook.com/watch/?ref=saved&v=673338946481891)
 - [Korean fried chicken](https://ichigoholly.pixnet.net/blog/post/355044431-%7b%e9%a3%9f%e8%ad%9c%7d--%e8%bf%bd%e9%9f%93%e5%8a%87%e5%bf%85%e5%90%83--%e9%9f%93%e5%bc%8f%e8%be%a3%e9%86%ac%e7%82%b8%e9%9b%9e-dakgangjeong)
 - [Karaage](https://www.youtube.com/watch?v=F77N-DBRvE4)
-- [鹽酥雞](https://www.youtube.com/watch?v=OyAQrpyG0tE) and [this](https://www.youtube.com/watch?v=SiQE6w40yeU)
 - [KFC rice](https://www.facebook.com/jeffjleung/posts/10218728882547978) or [this](https://www.asiaone.com/digital/internet-salivates-japanese-method-cooking-rice-kfc-original-recipe-chicken) or [with popeyes](https://www.facebook.com/groups/1250642975060385/permalink/1920452231412786/) and [another one](https://www.facebook.com/groups/1250642975060385/permalink/1919158091542200/)
-- [Spinach and gouda chicken](https://www.youtube.com/watch?v=q8cUgKK3wZk)
 - [Miyazaki nanban chicken (soy sauce + tartar)](https://www.youtube.com/watch?v=p7BaHCJ6xiI)
 - [鹽水雞](https://www.facebook.com/ytower01/videos/226427508384152/)
 - [Teriyaki chicken](https://www.youtube.com/watch?v=XVu57qOcpLY)
@@ -56,7 +54,6 @@ Will make one sometime
 - [Chocolate toffee oatmeal cookies](https://old.reddit.com/r/Old_Recipes/comments/dkn4b6/i_made_the_chocolate_coffee_toffee_oatmeal/)
 - [More chocolate chip cookie recipes](https://hot-thai-kitchen.com/chocolate-chip-cookies/)
 - [Swedish chocolate balls](https://www.youtube.com/watch?v=4LRb7sQ1uwE)
-- [Babka](https://www.vice.com/en_us/article/bjw37d/perfect-chocolate-babka-recipe)
 - [Matcha checkerboard cookies](https://www.facebook.com/groups/subtleasiancooking/permalink/3071890699493047/)
 - [Swiss roll cake](https://www.youtube.com/watch?v=c-hNWudWc2s)
 - [Japanese style pudding](https://www.youtube.com/watch?v=PlA09FSd22E)
@@ -73,7 +70,11 @@ Will make one sometime
 - [粉圓](https://www.facebook.com/watch/?v=2422199111395794)
 - [Almond cream](https://www.threehungrybellies.com/post/almond-cream)
 - [Pound cake](https://www.youtube.com/watch?v=GfXNAEXejK0)
-- [Tearamisu](https://junandtonic.com/blog/2019/8/20/tearamisu)
+- [Tearamisu](https://junandtonic.com/blog/2019/8/20/tearamisu) and [Ube tiramisu](https://www.facebook.com/groups/subtleasiancooking/permalink/3471614522853994/)
+- [Levain cookies](https://www.instagram.com/p/B_lUsKVBsuS/)
+- [Condensed milk truffle](https://www.facebook.com/groups/subtleasiancooking/permalink/3501978079817638/)
+- Pecan pie
+- [Cheesecake](https://old.reddit.com/r/Baking/comments/g8132l/my_parents_use_to_have_a_cheese_cake_business/)
 
 ### Dough
 
@@ -87,6 +88,7 @@ Will make one sometime
 - [Dumpling and skin](https://www.youtube.com/watch?v=E8QkYjga-lY) and [this](https://www.facebook.com/groups/subtleasiancooking/permalink/3033963046619146/)
 - [Everything bagel](https://www.threehungrybellies.com/post/chewy-everything-bagels)
 - [Peanut butter bread](https://old.reddit.com/r/Old_Recipes/comments/ftmduf/if_anyone_is_still_in_doubt_about_the_peanut/) and [this](https://old.reddit.com/r/Old_Recipes/comments/fu7rx2/ran_out_of_bread_under_lock_down_so_we_made_the/)
+- [Ube challah](https://www.facebook.com/groups/subtleasiancooking/permalink/3523492540999525/)
 
 ### Fish
 
@@ -127,6 +129,7 @@ Will make one sometime
 - Horchata
 - [蒸蛋](https://www.youtube.com/watch?v=1_XYThFIsac)
 - [Hotpot](https://www.facebook.com/groups/1250642975060385/permalink/1824043927720284/)
+- [米糕](https://www.instagram.com/p/B-e4IIgHRAF/)
 
 ## I haven't typed the recipe up yet
 
