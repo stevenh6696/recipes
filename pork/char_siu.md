@@ -16,7 +16,7 @@ Cooking time: 1 hour
 
 [Marion's Kitchen](http://www.marionskitchen.com/homemade-chinese-bbq-charsiu-pork/)
 
-[Joshua Weissman](https://www.youtube.com/watch?v=_6GsSRmnads)
+[Cook with Mikey](https://www.youtube.com/watch?v=0JY3BdnVMNU) (easier own sauce)
 
 ## Ingredients
 
