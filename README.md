@@ -45,7 +45,6 @@ Will make one sometime
 
 - [Watermelon sorbet](https://www.asweetpeachef.com/watermelon-sorbet/)
 - [Oatmeal cookies](https://www.reddit.com/r/Old_Recipes/comments/cdzmtv/the_oatmeal_cookies_my_grandmother_always_made/)
-- [Banana pudding](https://www.pauladeen.com/recipe/not-yo-mamas-banana-pudding/) or [this](https://old.reddit.com/r/Old_Recipes/comments/cfc930/moms_awardwinning_bread_pudding_bon_ton/)
 - [Apple crisp](https://www.reddit.com/r/Old_Recipes/comments/cz6dxh/apple_crisp_my_familys_favorite_dessert_growing/)
 - [Oatmeal crisp](https://old.reddit.com/r/Old_Recipes/comments/cdzmtv/the_oatmeal_cookies_my_grandmother_always_made/)
 - [Salted caramel chocolate chip cookies](https://www.threehungrybellies.com/post/salted-caramel-chocolate-chip-cookies)
@@ -75,6 +74,7 @@ Will make one sometime
 - [Condensed milk truffle](https://www.facebook.com/groups/subtleasiancooking/permalink/3501978079817638/)
 - Pecan pie
 - [Cheesecake](https://old.reddit.com/r/Baking/comments/g8132l/my_parents_use_to_have_a_cheese_cake_business/)
+- [Donuts](https://www.youtube.com/watch?v=mt_d0C4qejo)
 
 ### Dough
 
