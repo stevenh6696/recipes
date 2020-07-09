@@ -1,7 +1,6 @@
 # Chocolate Babka
 
-Serves:
-???
+Serves: 2 loaves
 
 Preparation time:
 a whole day
@@ -19,7 +18,7 @@ Cooking time:
 
 ### Dough
 - 3/8 cup whole milk
-- 15 grams fresh yeast (1.6 tsp of instant yeast)
+- 15 grams fresh yeast (1.6 tsp of instant yeast, 6 grams active dry)
 - 2 1/4 cup flour (original uses half bread, half pastry)
 - 1 large egg at room temperature
 - 1/4 cup granulated sugar
@@ -38,8 +37,13 @@ Cooking time:
 
 ## Directions
 
-1. watch the video (or open the link in the description)
+1. Add milk, egg, sugar, salt, and vanilla extract into a bowl and whisk together.
+2. Add in flour, butter, and yeast and combine until a dough forms.
+3. Knead for about 10? minutes.
+4. Tightly wrap with plastic wrap and proof in the refrigerator for at least 4 hours.
 
 ## Extra notes
 - turned out a lot better than expected
 - ROLL THE DOUGH VERY THINLY (the braid looks bad if you dont get many layers)
+- use small chocolate chips
+- don't stir the sugar syrup while its heating

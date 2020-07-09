@@ -14,13 +14,13 @@ Cooking time:
 
 ## Ingredients
 
-- Tart
-  - 60 grams unsalted butter
-  - 30 grams powdered sugar
-  - Pinch of salt
-  - 18 grams ground almonds
-  - 1 egg yolk
-  - 100 grams pastry flour
+- Tart (doubled)
+  - 120 grams unsalted butter
+  - 60 grams powdered sugar
+  - Pinch of salt (2 pinches?)
+  - 36 grams ground almonds
+  - 2 egg yolks
+  - 200 grams pastry flour (100 AP, 100 cake)
 - Custard cream
   - 200 ml milk
   - Vanilla pods
