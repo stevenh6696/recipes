@@ -68,8 +68,7 @@ Will make one sometime
 - Ube or sweet potato muffin
 - [粉圓](https://www.facebook.com/watch/?v=2422199111395794)
 - [Almond cream](https://www.threehungrybellies.com/post/almond-cream)
-- [Pound cake](https://www.youtube.com/watch?v=GfXNAEXejK0)
-- [Tearamisu](https://junandtonic.com/blog/2019/8/20/tearamisu) and [Ube tiramisu](https://www.facebook.com/groups/subtleasiancooking/permalink/3471614522853994/)
+- [Tearamisu](https://junandtonic.com/blog/2019/8/20/tearamisu) and [Ube tiramisu](https://www.facebook.com/groups/subtleasiancooking/permalink/3471614522853994/) and [this](https://kneading-love.com/2020/05/28/black-tea-tiramisu/)
 - [Levain cookies](https://www.instagram.com/p/B_lUsKVBsuS/)
 - [Condensed milk truffle](https://www.facebook.com/groups/subtleasiancooking/permalink/3501978079817638/)
 - Pecan pie
@@ -143,3 +142,5 @@ Will make one sometime
 ## Good resources
 
 [Olivol](https://www.youtube.com/watch?v=eoV7lw7YBG4)
+
+[Clear ice](https://www.youtube.com/watch?v=tid8K8Rz9co)
