@@ -18,6 +18,8 @@ Ida
 
 [Adam Liaw fancy Japanese style](https://www.youtube.com/watch?v=aASr5x0d3Ys)
 
+[MASA](https://www.youtube.com/watch?v=harbB22ZRMg) (maybe try the sauce)
+
 ## Ida style
 
 ### Ingredients

@@ -12,6 +12,8 @@ Cooking time: 40 minutes
 
 [YTower](https://www.facebook.com/ytower01/videos/571115957020038/?v=571115957020038)
 
+[Facebook variation with fancier sauce](https://www.facebook.com/groups/subtleasiancooking/?post_id=3557571320924980)
+
 ## Ingredients
 
 - 15 grams sliced ginger
