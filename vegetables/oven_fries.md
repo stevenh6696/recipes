@@ -10,6 +10,8 @@ Cooking time: 30 minutes
 
 [Food Network](https://www.foodnetwork.com/recipes/tyler-florence/oven-fries-recipe-1946000)
 
+[小穎美食](https://www.youtube.com/watch?v=X0IDRZt5rj0) (try chinese spices)
+
 ## Ingredients
 
 - Potatoes

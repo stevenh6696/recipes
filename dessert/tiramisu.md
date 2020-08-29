@@ -15,11 +15,13 @@ Cooking time: None???
 ## Ingredients
 
 ### Coffee Syrup
+
 - 1/2 cup of really strong coffee (maybe 1 cup would be better)
 - 2/3 tbsp raw sugar (or 3/4 granulated???)
 - maybe add some of that brandy in too
 
 ### Custard filling thing
+
 - 2 egg yolks
 - 4 tbsp of sugar (2.5 for the egg yolks, 1.5 for the whipped cream)
 - 1 tbsp rum
@@ -28,6 +30,7 @@ Cooking time: None???
 - 1 egg white
 
 ### Lady Fingers
+
 - buy some lady fingers (or watch the youtube video to make)
 
 ## Directions

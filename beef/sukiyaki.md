@@ -12,6 +12,8 @@ Cooking time: 15 minutes
 
 [MASA](https://www.youtube.com/watch?v=jHoM7VkBYVs)
 
+[Kimono mom](https://www.youtube.com/watch?v=lKOUWLHvWJI) (maybe try)
+
 ## Ingredients
 
 - Onion

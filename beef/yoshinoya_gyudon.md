@@ -12,6 +12,8 @@ Cooking time: 10 minutes
 
 [拉斐爾 youtube](https://www.youtube.com/watch?v=iG9Rqpw49Hk)
 
+[MASA](https://www.youtube.com/watch?v=UsBBNG9iSnw) (maybe try)
+
 ## Ingredients
 
 - 200 grams sliced beef

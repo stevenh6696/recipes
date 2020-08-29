@@ -16,6 +16,8 @@ Cooking time:
 
 [Cooking tree](https://www.youtube.com/watch?v=1X_WVVKrTf8)
 
+[HidaMari](https://www.youtube.com/watch?v=aKXTmeybXe4) fancy version
+
 ## Ingredients
 
 - Pound cake

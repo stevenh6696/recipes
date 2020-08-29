@@ -14,6 +14,8 @@ Cooking time:
 
 [MASA making burger form](https://www.youtube.com/watch?v=hRR_FgLII24)
 
+[Rosalina one pot version](https://www.youtube.com/watch?v=RPX3qlCxTqw)
+
 ## Ingredients
 
 - 240 grams sliced pork

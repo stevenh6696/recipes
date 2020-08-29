@@ -40,3 +40,6 @@ Cooking time: 1+ hour
 
 - Make [黃蘿蔔](https://blog.wonderfulfood.com.tw/2015/10/27/%E7%94%A8%E8%96%91%E9%BB%83%E7%B2%89%E9%86%83%E6%BC%AC%E7%9A%84%E9%BB%83%E8%98%BF%E8%94%94%E7%89%87%EF%BC%8C%E7%8D%A8%E7%89%B9%E5%8F%88%E9%A4%8A%E7%94%9F/) next time
 - Pretty good though
+- Add less sugar
+- Remember to mix or it will burn
+- Try pig skin for collagen thickening

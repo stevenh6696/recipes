@@ -14,6 +14,8 @@ Cooking time: 20 minutes
 
 [新美食鳳味](https://www.youtube.com/watch?v=mD0rxUvVd1s) (Don't really use this one)
 
+[Dad Chen's Kitchen](https://www.youtube.com/watch?v=OuHs_xoj7hg) (chicken version)
+
 ## Ingredients
 
 - Pork shoulder (boston butt)
