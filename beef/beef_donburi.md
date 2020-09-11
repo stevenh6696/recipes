@@ -14,7 +14,11 @@ Cooking time:
 
 [MASA](https://www.youtube.com/watch?v=JaLEDhL4p74)
 
-## Ingredients
+[詹姆士 miso](https://www.youtube.com/watch?v=U7YkFCWDpRQ)
+
+## General
+
+### Ingredients
 
 - Soy sauce marinade
   - 1:1 ratio grated garlic and ginger (around half a garlic clove)
@@ -38,7 +42,7 @@ Cooking time:
 - Egg
 - White sesame
 
-## Directions
+### Directions
 
 1. Make marinade
 2. Put meat in marinade
@@ -49,7 +53,30 @@ Cooking time:
 7. Put egg yolk in middle
 8. Add sesame seeds
 
+## Miso version
+
+### Ingredients
+
+- Fatty beef
+- Onion
+- Sugar
+- 2 teaspoon mirin
+- 6 tablespoon soy sauce
+- Dashi stock or water
+- 2 tablespoons miso
+- Raw egg
+
+### Directions
+
+1. Stir fry beef
+2. Add onion in
+3. Add sugar, mirin, and soy sauce in
+4. Add dashi stock or water
+5. Cover and cook until soft
+6. Add miso
+
 ## Extra notes
 
 - Avocado is kinda fatty like tuna or something
 - Pretty good
+- Miso version is kinda just like miso yoshinoya gyudon

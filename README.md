@@ -19,7 +19,7 @@ Will make one sometime
 - [肉片炒豆芽](https://www.youtube.com/watch?v=MOKqoCMFTgA)
 - [Black pepper燒肉](https://www.youtube.com/watch?v=1WiQ1LH9CZs)
 - [Beef short ribs soup](https://www.youtube.com/watch?v=MeTwuomNAV0)
-- [Miso gyudon](https://www.youtube.com/watch?v=U7YkFCWDpRQ)
+- [清燉牛肉](https://www.youtube.com/watch?v=TUHAzG73XS0)
 
 ### Breakfast
 
@@ -30,6 +30,7 @@ Will make one sometime
 - [Breakfast taco](https://www.youtube.com/watch?v=j0gjlSgO7VU)
 - [Belgian liege waffles](https://old.reddit.com/r/Breadit/comments/fuutwn/first_attempt_at_liege_waffles/)
 - [擂茶](https://www.facebook.com/groups/subtleasiancooking/permalink/3371106316238149/)
+- [Random toast thing](https://www.facebook.com/photo/?fbid=10157621331958339)
 
 ### Chicken
 
@@ -48,9 +49,10 @@ Will make one sometime
 - [宮保雞丁](https://www.youtube.com/watch?v=0KkkPZIDvj8)
 - [Korean chicken soup](https://www.youtube.com/watch?v=s1qQQEYwHNk)
 - [Korean whole chicken chicken soup](https://www.youtube.com/watch?v=s1qQQEYwHNk)
-- [Spicy chicken donburi](https://www.youtube.com/watch?v=0nXRuLEH5MU)
 - [Easy 蔥雞湯](https://www.youtube.com/watch?v=pCRoiNVUX1c)
 - [蔥燒雞燴飯](https://www.youtube.com/watch?v=PQna_Xg6p-E)
+- [雞肉鬆](https://www.facebook.com/groups/iLoveCostco/permalink/1197803363911511/)
+- [Ponzu chicken](https://www.youtube.com/watch?v=DIMpY84LuJ8)
 
 ### Dessert
 
@@ -91,6 +93,7 @@ Will make one sometime
 - [Honey toast](https://www.youtube.com/watch?v=dpXHV37DC64)
 - [甜湯](https://www.youtube.com/watch?v=KPJX1xxqLkA)
 - [Honey toast](https://www.youtube.com/watch?v=dpXHV37DC64), maybe for breakfast
+- [炸饅頭](https://www.facebook.com/groups/subtleasiancooking/permalink/3807885579226885/)
 - [Panna cotta](https://www.youtube.com/watch?v=0ZyTzCyBSlg), to use up egg whites?
 
 ### Dough
@@ -127,6 +130,9 @@ Will make one sometime
 - [Korean tofu stew](https://www.youtube.com/watch?v=DN3aj6DyCv0)
 - [Carbonara donburi](https://www.youtube.com/watch?v=uNHh5qcmfPE)
 - [山豬肉](https://www.youtube.com/watch?v=d-2-NBnGsts)
+- [粽子](https://www.youtube.com/watch?v=LZmjLIFSQEc)
+- [Vietnamese pork chop](https://www.hungryhuy.com/vietnamese-pork-chops/?fbclid=IwAR3iaq-1WJuI2rCm-h6T1jeU1UYrcn6PF1PO_qv_K-i5UKgzctdRbfqcYsE)
+- [Baked fried pork cutlet](https://www.youtube.com/watch?v=NmeEA_6l6P)
 
 ### Vegetables
 
@@ -143,7 +149,8 @@ Will make one sometime
 - [Potatoes Romanoff](https://www.youtube.com/watch?v=3FpcOohn4bI)
 - Black garlic
 - [Vodka sauce](https://old.reddit.com/r/Old_Recipes/comments/g23374/to_whomever_posted_the_vodka_sauce_recipe_here/)
-- [Tofu donburi](https://www.youtube.com/watch?v=PxBuSGqUmE4)
+- [Baked garlic butter potato with yogurt sauce](https://www.youtube.com/watch?v=KYRkMyHy9j8)
+- [Pupusas](https://old.reddit.com/r/EatCheapAndHealthy/comments/iewo1v/vegetarian_pupusas_with_red_cabbage_curtido/)
 
 ### Other
 

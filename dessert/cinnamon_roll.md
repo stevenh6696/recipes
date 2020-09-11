@@ -14,6 +14,8 @@ Version | Link
 
 [Binging with Babish](https://www.bingingwithbabish.com/recipes/cinnamonrolls) (buttermilk?)
 
+[Subtle asian cooking](https://www.facebook.com/groups/subtleasiancooking/permalink/3755124657836311/) (use brown butter for version 3)
+
 ## Version 1
 
 Easy cinnamon roll recipe from /r/Old_Recipes
