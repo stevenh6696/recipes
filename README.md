@@ -91,6 +91,7 @@ Will make one sometime
 - [Honey toast](https://www.youtube.com/watch?v=dpXHV37DC64)
 - [甜湯](https://www.youtube.com/watch?v=KPJX1xxqLkA)
 - [Honey toast](https://www.youtube.com/watch?v=dpXHV37DC64), maybe for breakfast
+- [Panna cotta](https://www.youtube.com/watch?v=0ZyTzCyBSlg), to use up egg whites?
 
 ### Dough
 
