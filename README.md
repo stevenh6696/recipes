@@ -97,10 +97,10 @@ Will make one sometime
 - [甜湯](https://www.youtube.com/watch?v=KPJX1xxqLkA)
 - [Honey toast](https://www.youtube.com/watch?v=dpXHV37DC64), maybe for breakfast
 - [炸饅頭](https://www.facebook.com/groups/subtleasiancooking/permalink/3807885579226885/)
-- [Panna Cotta](https://www.youtube.com/watch?v=0ZyTzCyBSlg)
 - [Espresso dark chocolate cookie](https://www.facebook.com/groups/subtleasiancooking/permalink/3983947354954039/)
 - [Pecan chocolate chip cookies](https://www.threehungrybellies.com/post/thin-crispy-pecan-chocolate-chip-cookies)
 - [Apple cider donuts](https://www.youtube.com/watch?v=yHxcfwQ225Y)
+- [Panna cotta](https://www.youtube.com/watch?v=0ZyTzCyBSlg), to use up egg whites?
 
 ### Dough
 
