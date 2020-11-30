@@ -14,6 +14,8 @@ Cooking time: 1 hour
 
 [The Spruce Eats](https://www.thespruceeats.com/southern-oven-fried-chicken-3058647) (Try, higher temp)
 
+[The Kitchen Magipie](https://www.youtube.com/watch?v=zNKtedwSc48) (try)
+
 ## Ingredients
 
 - 1/3 cup vegetable oil

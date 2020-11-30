@@ -16,6 +16,8 @@ Cooking time:
 
 [詹姆士的厨房](https://www.youtube.com/watch?v=FNsB9x0x76g)
 
+[Spice N' Pans](https://www.youtube.com/watch?v=HgApMC03EwY) (try different batter thing)
+
 ## Ingredients
 
 - Chicken breasts
