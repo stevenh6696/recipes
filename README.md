@@ -101,6 +101,7 @@ Will make one sometime
 - [Pecan chocolate chip cookies](https://www.threehungrybellies.com/post/thin-crispy-pecan-chocolate-chip-cookies)
 - [Apple cider donuts](https://www.youtube.com/watch?v=yHxcfwQ225Y)
 - [Panna cotta](https://www.youtube.com/watch?v=0ZyTzCyBSlg), to use up egg whites?
+- [London Fog Cake](https://www.abeautifulplate.com/london-fog-cake-earl-grey-buttercream/)
 
 ### Dough
 
