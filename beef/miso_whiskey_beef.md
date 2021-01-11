@@ -32,3 +32,5 @@ Cooking time:
 6. Sear meat
 
 ## Extra notes
+
+- Not bad

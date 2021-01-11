@@ -11,7 +11,7 @@ Will make one sometime
 ### Beef
 
 - [胡椒餅](https://www.facebook.com/ytower01/videos/398391094186204/)
-- [Galbi jjim](https://www.facebook.com/groups/subtleasiancooking/permalink/3143608582321258/) and [this](https://www.youtube.com/watch?v=kS87lQYJJeA)
+- [Galbi jjim](https://www.facebook.com/groups/subtleasiancooking/permalink/3143608582321258/) and [this](https://www.youtube.com/watch?v=kS87lQYJJeA) and [this](https://www.youtube.com/watch?v=ggthOI0cIno)
 - [Beef and cabbage soup](https://www.budgetbytes.com/beef-and-cabbage-soup/)
 - [Korean ox bone soup](https://www.youtube.com/watch?v=-eQb_6iUwRw)
 - [紅燒ox tail](https://www.youtube.com/watch?v=HRa-at77s4A)
@@ -20,6 +20,8 @@ Will make one sometime
 - [Black pepper燒肉](https://www.youtube.com/watch?v=1WiQ1LH9CZs)
 - [Beef short ribs soup](https://www.youtube.com/watch?v=MeTwuomNAV0)
 - [清燉牛肉](https://www.youtube.com/watch?v=TUHAzG73XS0)
+- [Garlic beef](https://www.youtube.com/watch?v=71xZJOrjacc)
+- [Easy bulgogi](https://www.youtube.com/watch?v=TU056NxpH30)
 
 ### Breakfast
 
@@ -31,6 +33,7 @@ Will make one sometime
 - [Belgian liege waffles](https://old.reddit.com/r/Breadit/comments/fuutwn/first_attempt_at_liege_waffles/)
 - [擂茶](https://www.facebook.com/groups/subtleasiancooking/permalink/3371106316238149/)
 - [Random toast thing](https://www.facebook.com/photo/?fbid=10157621331958339)
+- [芋頭肉鬆sandwich](https://www.facebook.com/groups/1250642975060385/permalink/2551529761638360/)
 
 ### Chicken
 
@@ -53,6 +56,9 @@ Will make one sometime
 - [蔥燒雞燴飯](https://www.youtube.com/watch?v=PQna_Xg6p-E)
 - [雞肉鬆](https://www.facebook.com/groups/iLoveCostco/permalink/1197803363911511/)
 - [Ponzu chicken](https://www.youtube.com/watch?v=DIMpY84LuJ8)
+- [溏心蛋](https://www.facebook.com/groups/iLoveCostco/permalink/1278992322459281/)
+- [Fried chicken](https://www.youtube.com/watch?v=GyHLW3eZBJ4)
+- [Baked chicken wings](https://www.threehungrybellies.com/post/insanely-crispy-five-spice-chicken-wings-baked)
 
 ### Dessert
 
@@ -76,7 +82,6 @@ Will make one sometime
 - [Fast whipped cream](https://www.youtube.com/watch?v=VWgBPMZ0V5s)
 - [Vanilla ice cream](https://www.youtube.com/watch?v=IQ-t8eSSD3Y), need electric whisk
 - [銅鑼燒](https://www.justonecookbook.com/dorayaki-japanese-red-bean-pancake/)
-- [Russian honey cake](https://old.reddit.com/r/Baking/comments/dxlj4c/its_my_first_time_making_russian_honey_cake_one/)
 - [Thumbprint cookies](https://www.youtube.com/watch?v=YXxJisASPIY)
 - Ube or sweet potato muffin
 - [粉圓](https://www.facebook.com/watch/?v=2422199111395794)
@@ -89,12 +94,14 @@ Will make one sometime
 - [Donuts](https://www.youtube.com/watch?v=mt_d0C4qejo)
 - [Portuguese rice pudding](https://old.reddit.com/r/Old_Recipes/comments/hu6rpc/my_portuguese_grandmas_rice_pudding_recipe_passed/)
 - [Lavendar tea cake](https://old.reddit.com/r/Old_Recipes/comments/hm82tm/made_the_lavender_tea_cake_from_a_recipe_posted/)
-- [Nectarine cobbler](https://www.threehungrybellies.com/post/nectarine-cobbler?postId=5ef1825278dd3f00173f5a8f)
-- [Honey toast](https://www.youtube.com/watch?v=dpXHV37DC64)
 - [甜湯](https://www.youtube.com/watch?v=KPJX1xxqLkA)
 - [Honey toast](https://www.youtube.com/watch?v=dpXHV37DC64), maybe for breakfast
 - [炸饅頭](https://www.facebook.com/groups/subtleasiancooking/permalink/3807885579226885/)
+- [Espresso dark chocolate cookie](https://www.facebook.com/groups/subtleasiancooking/permalink/3983947354954039/)
+- [Pecan chocolate chip cookies](https://www.threehungrybellies.com/post/thin-crispy-pecan-chocolate-chip-cookies)
+- [Apple cider donuts](https://www.youtube.com/watch?v=yHxcfwQ225Y)
 - [Panna cotta](https://www.youtube.com/watch?v=0ZyTzCyBSlg), to use up egg whites?
+- [London Fog Cake](https://www.abeautifulplate.com/london-fog-cake-earl-grey-buttercream/)
 
 ### Dough
 
@@ -129,10 +136,10 @@ Will make one sometime
 - [紅燒肉](https://www.youtube.com/watch?v=WRhFjZfo4k4)
 - [Korean tofu stew](https://www.youtube.com/watch?v=DN3aj6DyCv0)
 - [Carbonara donburi](https://www.youtube.com/watch?v=uNHh5qcmfPE)
-- [山豬肉](https://www.youtube.com/watch?v=d-2-NBnGsts)
 - [粽子](https://www.youtube.com/watch?v=LZmjLIFSQEc)
 - [Vietnamese pork chop](https://www.hungryhuy.com/vietnamese-pork-chops/?fbclid=IwAR3iaq-1WJuI2rCm-h6T1jeU1UYrcn6PF1PO_qv_K-i5UKgzctdRbfqcYsE)
 - [Baked fried pork cutlet](https://www.youtube.com/watch?v=NmeEA_6l6P)
+- [Tofu and ground pork](https://www.youtube.com/watch?v=V-Rmxj6iniI)
 
 ### Vegetables
 
@@ -151,14 +158,18 @@ Will make one sometime
 - [Vodka sauce](https://old.reddit.com/r/Old_Recipes/comments/g23374/to_whomever_posted_the_vodka_sauce_recipe_here/)
 - [Baked garlic butter potato with yogurt sauce](https://www.youtube.com/watch?v=KYRkMyHy9j8)
 - [Pupusas](https://old.reddit.com/r/EatCheapAndHealthy/comments/iewo1v/vegetarian_pupusas_with_red_cabbage_curtido/)
+- [Pickled red onions](https://www.youtube.com/watch?v=3z2jTcsL28g)
+- [Eggplant](https://www.youtube.com/watch?v=GI9-PELK_7M)
+- [White carrot pancake](https://www.youtube.com/watch?v=n_nkmARwOq8)
 
 ### Other
 
 - Horchata
 - [蒸蛋](https://www.youtube.com/watch?v=1_XYThFIsac)
-- [Hotpot](https://www.facebook.com/groups/1250642975060385/permalink/1824043927720284/) and [sauce](https://www.facebook.com/photo/?fbid=10109783383862173&set=gm.1227398617618652) and [this](https://www.youtube.com/watch?v=B_k1UsBamdY)
+- [Hotpot](https://www.facebook.com/groups/1250642975060385/permalink/1824043927720284/) and [sauce](https://www.facebook.com/photo/?fbid=10109783383862173&set=gm.1227398617618652) and [this](https://www.youtube.com/watch?v=B_k1UsBamdY) and [this](https://www.youtube.com/watch?v=88DcJkFmsUc)
 - [米糕](https://www.instagram.com/p/B-e4IIgHRAF/)
 - [Onigiri](https://www.youtube.com/watch?v=hGp6grK1Cwo) and [this](https://www.youtube.com/watch?v=phZTQHEzU6w)
+- [粽子](https://www.youtube.com/watch?v=8mwimImAFwg)
 
 ## I haven't typed the recipe up yet
 
@@ -174,3 +185,7 @@ Will make one sometime
 [Olivol](https://www.youtube.com/watch?v=eoV7lw7YBG4)
 
 [Clear ice](https://www.youtube.com/watch?v=tid8K8Rz9co)
+
+[Omelette](https://www.youtube.com/watch?v=Q2d69g-JpZI)
+
+[Eggless omelette](https://www.youtube.com/watch?v=9Ah4tW-k8Ao)
