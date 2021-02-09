@@ -14,7 +14,6 @@ Will make one sometime
 - [Galbi jjim](https://www.facebook.com/groups/subtleasiancooking/permalink/3143608582321258/) and [this](https://www.youtube.com/watch?v=kS87lQYJJeA) and [this](https://www.youtube.com/watch?v=ggthOI0cIno)
 - [Beef and cabbage soup](https://www.budgetbytes.com/beef-and-cabbage-soup/)
 - [Korean ox bone soup](https://www.youtube.com/watch?v=-eQb_6iUwRw)
-- [紅燒ox tail](https://www.youtube.com/watch?v=HRa-at77s4A)
 - [Bibimbap](https://www.youtube.com/watch?v=HsvPS_sh_JQ)
 - [肉片炒豆芽](https://www.youtube.com/watch?v=MOKqoCMFTgA)
 - [Black pepper燒肉](https://www.youtube.com/watch?v=1WiQ1LH9CZs)
@@ -34,7 +33,6 @@ Will make one sometime
 - [Belgian liege waffles](https://old.reddit.com/r/Breadit/comments/fuutwn/first_attempt_at_liege_waffles/)
 - [擂茶](https://www.facebook.com/groups/subtleasiancooking/permalink/3371106316238149/)
 - [Random toast thing](https://www.facebook.com/photo/?fbid=10157621331958339)
-- [芋頭肉鬆sandwich](https://www.facebook.com/groups/1250642975060385/permalink/2551529761638360/)
 - [核桃糊](https://www.facebook.com/groups/subtleasiancooking/permalink/3747388891943221/) and [芝麻糊](https://www.facebook.com/groups/subtleasiancooking/permalink/3523345367680909/)
 
 ### Chicken
@@ -63,7 +61,6 @@ Will make one sometime
 - [Baked chicken wings](https://www.threehungrybellies.com/post/insanely-crispy-five-spice-chicken-wings-baked)
 - [Garlic chicken soup](https://www.youtube.com/watch?v=f2kE6hnORIw)
 - [雞排](https://www.youtube.com/watch?v=UqlYAG1mveU)
-- [Curry oyakudon](https://www.youtube.com/watch?v=FBzEwQnk8pE)
 
 ### Dessert
 
@@ -110,6 +107,7 @@ Will make one sometime
 - [芋圓/地瓜圓](https://www.facebook.com/groups/subtleasiancooking/permalink/3474645709217542/)
 - [Brown sugar rice cake](https://hungrymindhungrystomach.com/2020/11/14/recipe-brown-sugar-rice-cakes/)
 - [南杏tart](https://www.facebook.com/groups/subtleasiancooking/permalink/3537010909647688/)
+- [London Fog Cake](https://www.abeautifulplate.com/london-fog-cake-earl-grey-buttercream/)
 
 ### Dough
 
