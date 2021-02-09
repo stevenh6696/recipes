@@ -18,6 +18,8 @@ Cooking time:
 
 [Spice N' Pans](https://www.youtube.com/watch?v=HgApMC03EwY) (try different batter thing)
 
+[馬蹄廚房](https://www.youtube.com/watch?v=UqlYAG1mveU)
+
 ## Ingredients
 
 - Chicken breasts

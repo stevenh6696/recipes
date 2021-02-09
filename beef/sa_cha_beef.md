@@ -10,6 +10,8 @@ Cooking time: 10 minutes
 
 [阿基師](https://www.youtube.com/watch?v=0M-HR9rMDkg&t=298s)
 
+[Subtle asian eats](https://www.facebook.com/groups/1250642975060385/permalink/2685232648268070/) more saucy version
+
 ## Ingredients
 
 - Garlic

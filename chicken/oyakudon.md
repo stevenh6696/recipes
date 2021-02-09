@@ -16,6 +16,8 @@ Cooking time: 15 minutes
 
 [Adam Liaw](https://www.youtube.com/watch?v=ScS3GUc38gU)
 
+[MASA curry version](https://www.youtube.com/watch?v=FBzEwQnk8pE)
+
 ## Ingredients
 
 - 50 grams chicken thigh
@@ -55,3 +57,4 @@ Cooking time: 15 minutes
 - Egg will instantly overcook if no one is watching it
 - tastes fine if you forget about the stock
 - Can pan fry skin of chicken thigh first too
+- Can add curry too

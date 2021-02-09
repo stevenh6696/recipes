@@ -42,3 +42,4 @@ Cooking time: 1 hour
 - Pork neck was kind of dry, might have been too thin
 - The instructions have instructions for making own char siu sauce and using charcoal grill
 - Marion's recipe maybe easier way to make own sauce
+- Don't cut too thick, bad skin to meat ratio

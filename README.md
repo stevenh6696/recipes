@@ -22,6 +22,7 @@ Will make one sometime
 - [清燉牛肉](https://www.youtube.com/watch?v=TUHAzG73XS0)
 - [Garlic beef](https://www.youtube.com/watch?v=71xZJOrjacc)
 - [Easy bulgogi](https://www.youtube.com/watch?v=TU056NxpH30)
+- [清湯牛腩煲](https://www.facebook.com/claypotish/posts/114613923710186)
 
 ### Breakfast
 
@@ -34,13 +35,14 @@ Will make one sometime
 - [擂茶](https://www.facebook.com/groups/subtleasiancooking/permalink/3371106316238149/)
 - [Random toast thing](https://www.facebook.com/photo/?fbid=10157621331958339)
 - [芋頭肉鬆sandwich](https://www.facebook.com/groups/1250642975060385/permalink/2551529761638360/)
+- [核桃糊](https://www.facebook.com/groups/subtleasiancooking/permalink/3747388891943221/) and [芝麻糊](https://www.facebook.com/groups/subtleasiancooking/permalink/3523345367680909/)
 
 ### Chicken
 
 - [醬燒雞腿](https://www.youtube.com/watch?v=chsUwHP-daQ)
 - [Chicken soup](https://www.facebook.com/watch/?v=2674267765957339)
 - [醉雞](https://www.facebook.com/watch/?v=2630328250351291) and [this](https://www.youtube.com/watch?v=3vbu5o7B8y8)
-- [Korean fried chicken](https://ichigoholly.pixnet.net/blog/post/355044431-%7b%e9%a3%9f%e8%ad%9c%7d--%e8%bf%bd%e9%9f%93%e5%8a%87%e5%bf%85%e5%90%83--%e9%9f%93%e5%bc%8f%e8%be%a3%e9%86%ac%e7%82%b8%e9%9b%9e-dakgangjeong)
+- [Korean fried chicken](https://ichigoholly.pixnet.net/blog/post/355044431-%7b%e9%a3%9f%e8%ad%9c%7d--%e8%bf%bd%e9%9f%93%e5%8a%87%e5%bf%85%e5%90%83--%e9%9f%93%e5%bc%8f%e8%be%a3%e9%86%ac%e7%82%b8%e9%9b%9e-dakgangjeong) and [this](https://www.youtube.com/watch?v=kQT9w8lbb2U) and [masa](https://www.youtube.com/watch?v=Nhir7LRBgys)
 - [Karaage](https://www.youtube.com/watch?v=F77N-DBRvE4) and [this](https://www.youtube.com/watch?v=MOKqoCMFTgA)
 - [KFC rice](https://www.facebook.com/jeffjleung/posts/10218728882547978) or [this](https://www.asiaone.com/digital/internet-salivates-japanese-method-cooking-rice-kfc-original-recipe-chicken) or [with popeyes](https://www.facebook.com/groups/1250642975060385/permalink/1920452231412786/) and [another one](https://www.facebook.com/groups/1250642975060385/permalink/1919158091542200/)
 - [Miyazaki nanban chicken (soy sauce + tartar)](https://www.youtube.com/watch?v=p7BaHCJ6xiI)
@@ -57,8 +59,11 @@ Will make one sometime
 - [雞肉鬆](https://www.facebook.com/groups/iLoveCostco/permalink/1197803363911511/)
 - [Ponzu chicken](https://www.youtube.com/watch?v=DIMpY84LuJ8)
 - [溏心蛋](https://www.facebook.com/groups/iLoveCostco/permalink/1278992322459281/)
-- [Fried chicken](https://www.youtube.com/watch?v=GyHLW3eZBJ4)
+- [Fried chicken](https://www.youtube.com/watch?v=GyHLW3eZBJ4) and [wings](https://www.youtube.com/watch?v=_pMy0P2ImNE) and [this](https://www.youtube.com/watch?v=CU1fp8rGTX8)
 - [Baked chicken wings](https://www.threehungrybellies.com/post/insanely-crispy-five-spice-chicken-wings-baked)
+- [Garlic chicken soup](https://www.youtube.com/watch?v=f2kE6hnORIw)
+- [雞排](https://www.youtube.com/watch?v=UqlYAG1mveU)
+- [Curry oyakudon](https://www.youtube.com/watch?v=FBzEwQnk8pE)
 
 ### Dessert
 
@@ -101,6 +106,10 @@ Will make one sometime
 - [Pecan chocolate chip cookies](https://www.threehungrybellies.com/post/thin-crispy-pecan-chocolate-chip-cookies)
 - [Apple cider donuts](https://www.youtube.com/watch?v=yHxcfwQ225Y)
 - [Panna cotta](https://www.youtube.com/watch?v=0ZyTzCyBSlg), to use up egg whites?
+- [Taro ice cream](https://www.facebook.com/groups/subtleasiancooking/permalink/3454118451270268/)
+- [芋圓/地瓜圓](https://www.facebook.com/groups/subtleasiancooking/permalink/3474645709217542/)
+- [Brown sugar rice cake](https://hungrymindhungrystomach.com/2020/11/14/recipe-brown-sugar-rice-cakes/)
+- [南杏tart](https://www.facebook.com/groups/subtleasiancooking/permalink/3537010909647688/)
 
 ### Dough
 
@@ -120,6 +129,7 @@ Will make one sometime
 
 - [Spanish octopus](https://www.youtube.com/watch?v=onCfFc8FNr8) or [normal octopus](https://www.facebook.com/groups/1250642975060385/permalink/1747396455385032/)
 - [Easy lobster tails](https://www.youtube.com/watch?v=L6dZ5oWYgiY)
+- [Creamy salmon](https://www.youtube.com/watch?v=Hz9-N9r8Ohs)
 
 ### Noodles
 
@@ -139,6 +149,13 @@ Will make one sometime
 - [Vietnamese pork chop](https://www.hungryhuy.com/vietnamese-pork-chops/?fbclid=IwAR3iaq-1WJuI2rCm-h6T1jeU1UYrcn6PF1PO_qv_K-i5UKgzctdRbfqcYsE)
 - [Baked fried pork cutlet](https://www.youtube.com/watch?v=NmeEA_6l6P)
 - [Tofu and ground pork](https://www.youtube.com/watch?v=V-Rmxj6iniI)
+- [Kimchi pork](https://www.youtube.com/watch?v=HIY5mikVHgE)
+- [Pig feet](https://www.youtube.com/watch?v=ggDfPpsrNgg)
+- [Pepper prok meatball soup](https://www.youtube.com/watch?v=cUceVlbeivM)
+- [豆鼓排骨](https://www.youtube.com/watch?v=8TedHjW77Ts) or [this](https://www.facebook.com/groups/subtleasiancooking/permalink/4071771442838296/)
+- 醃篤鮮
+- [Taiwan fried pork belly](https://www.facebook.com/groups/subtleasiancooking/permalink/3838696929479083/)
+- [肉乾](https://www.facebook.com/groups/subtleasiancooking/permalink/4306213612727410/)
 
 ### Vegetables
 
@@ -160,6 +177,12 @@ Will make one sometime
 - [Pickled red onions](https://www.youtube.com/watch?v=3z2jTcsL28g)
 - [Eggplant](https://www.youtube.com/watch?v=GI9-PELK_7M)
 - [White carrot pancake](https://www.youtube.com/watch?v=n_nkmARwOq8)
+- [Lotus root appetizer](https://www.youtube.com/watch?v=eIqXhGl_oP8)
+- [Daikon and cucumber appetizer](https://www.youtube.com/watch?v=Nhir7LRBgys)
+- [Tofu](https://www.youtube.com/watch?v=OdNqWcUdm6I)
+- [Sushi ginger](https://www.justonecookbook.com/pickled-ginger/) or [this](https://cookpad.com/tw/%E9%A3%9F%E8%AD%9C/2062837-%E6%97%A5%E5%BC%8F%E7%94%9C%E8%96%91%E7%89%87)
+- [Beansprout appetizer](https://www.instagram.com/p/CBhm9fmHFwr/)
+- [海帶芽湯](https://www.youtube.com/watch?v=SDGNE0_gvuY)
 
 ### Other
 
@@ -169,6 +192,8 @@ Will make one sometime
 - [米糕](https://www.instagram.com/p/B-e4IIgHRAF/)
 - [Onigiri](https://www.youtube.com/watch?v=hGp6grK1Cwo) and [this](https://www.youtube.com/watch?v=phZTQHEzU6w)
 - [粽子](https://www.youtube.com/watch?v=8mwimImAFwg)
+- [米糕](https://www.youtube.com/watch?v=MfSaQJEOKrU)
+- [Pasta idea](https://www.facebook.com/groups/iLoveCostco/permalink/1121185428239972/)
 
 ## I haven't typed the recipe up yet
 
@@ -178,6 +203,8 @@ Will make one sometime
 - [YTower fish](https://www.facebook.com/watch/?v=2380774282241047)
 - [Random pork recipes](https://www.facebook.com/ytower01/videos/571115957020038) and [this](https://www.facebook.com/ytower01/videos/2710532238997558/)
 - [Random chicken soup recipes](https://www.facebook.com/ytower01/videos/608500113305914/)
+- Preserved tomato + maybe on bread with cheese
+- Preserved pepper dumpling
 
 ## Good resources
 

@@ -12,7 +12,7 @@ Cooking time:
 
 [詹姆士](https://www.youtube.com/watch?v=8FJcXLftLKM)
 
-[MASA](https://www.youtube.com/watch?v=JaLEDhL4p74)
+[MASA](https://www.youtube.com/watch?v=JaLEDhL4p74) and [more marinades](https://www.youtube.com/watch?v=bGJtPI1QivM)
 
 [詹姆士 miso](https://www.youtube.com/watch?v=U7YkFCWDpRQ)
 
@@ -37,6 +37,12 @@ Cooking time:
   - 1 teaspoon lemon juice
   - 1 teaspoon white sesame
   - 1 tablespoon sesame oil
+- Miso marinade
+  - 2 tablespoon sake
+  - 1 teaspoon sugar
+  - 1/2 tablespoon soy sauce
+  - 1/2 teaspoon miso
+  - 1/2 teaspoon grated garlic
 - Avocado??
 - Seaweed
 - Egg

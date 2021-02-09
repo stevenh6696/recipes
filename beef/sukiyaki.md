@@ -14,6 +14,8 @@ Cooking time: 15 minutes
 
 [Kimono mom](https://www.youtube.com/watch?v=lKOUWLHvWJI) (maybe try)
 
+[Jun's kitchen](https://www.youtube.com/watch?v=OdNqWcUdm6I)
+
 ## Ingredients
 
 - Onion
